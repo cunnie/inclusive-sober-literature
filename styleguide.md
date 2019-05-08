@@ -41,3 +41,8 @@ The sum of all this mighty effort is less peace and less brotherhood than before
 The sum of all this mighty effort is less peace and less kinship than before.
 
 ## Use "parent" instead of "mother" or "father"
+
+## Keep gendered pronouns if they refer to specific people
+### Unchanged
+So did a friend of mine who was a one-time vice-president of the American Atheist Society, but he got through with room to spare.”
+

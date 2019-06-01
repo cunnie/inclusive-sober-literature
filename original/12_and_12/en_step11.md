@@ -103,4 +103,3 @@ any experienced A.A. will tell how his affairs have taken remarkable and unexpec
 
   Perhaps one of the greatest rewards of meditation and prayer is the sense of belonging that comes to us. We no longer live in a completely hostile world. We are no longer lost and frightened and purposeless. The moment we catch even a glimpse of God’s will, the moment we begin to see truth, justice, and love as the real and eternal things in life, we are no longer deeply disturbed by all the seeming evidence to the contrary that surrounds us in purely human affairs. We know that God lovingly watches over us. We know that when we turn to Him, all will be well with us, here and hereafter.
 
-

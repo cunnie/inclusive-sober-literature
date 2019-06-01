@@ -34,7 +34,8 @@ No adult man or woman, for example, should be in too much emotional dependence u
 ### New
 No adult, for example, should be in too much emotional dependence upon a parent.
 
-## Use "kinship" instead of "brotherhood"
+## Avoid words that assume a group of people are all male
+E.g.: brotherhood and mankind
 ### Old
 The sum of all this mighty effort is less peace and less brotherhood than before.
 ### New
@@ -46,3 +47,8 @@ The sum of all this mighty effort is less peace and less kinship than before.
 ### Unchanged
 So did a friend of mine who was a one-time vice-president of the American Atheist Society, but he got through with room to spare.”
 
+## Improve gendered language in quotes using brackets
+### Old
+“THIS is the Step that separates the men from the boys.” So declares a well-loved clergyman who happens to be one of A.A.’s greatest friends.
+### New
+“THIS is the Step that separates the [adults] from the [children].” So declares a well-loved clergyperson who happens to be one of A.A.’s greatest friends.

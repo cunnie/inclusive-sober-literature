@@ -52,3 +52,9 @@ So did a friend of mine who was a one-time vice-president of the American Atheis
 “THIS is the Step that separates the men from the boys.” So declares a well-loved clergyman who happens to be one of A.A.’s greatest friends.
 ### New
 “THIS is the Step that separates the [adults] from the [children].” So declares a well-loved clergyperson who happens to be one of A.A.’s greatest friends.
+
+## Using fellow and fellowship is OK
+This one is tricky. In some earlier chapters, you may see it remixed to "peer" or "others", but further research reveals that ["fellow" is etymologically gender neutral], and in a survey of different online discussion boards, most people tend to agree that fellow in most modern usages is gender neutral.
+
+
+["fellow" is etymologically gender neutral]: https://www.etymonline.com/word/fellow

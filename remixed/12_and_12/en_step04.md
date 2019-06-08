@@ -18,7 +18,7 @@ PAGE 43
 
   Nor is the quest for security always expressed in terms of money. How frequently we see a frightened human being determined to depend completely upon a stronger person for guidance and protection. This weak one, failing to meet life’s responsibilities with their own resources, never grows up. Disillusionment and helplessness are their lot. In time all their protectors either flee or die, and they are once more left alone and afraid.
 
-  We have also seen people who go power-mad, who devote themselves to attempting to rule those around them.
+  We have also seen people who go power-mad, who devote themselves to attempting to rule their fellows.
 
 PAGE 44
 

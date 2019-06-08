@@ -18,7 +18,7 @@ PAGE 64
 
   When people pour so much alcohol into themselves that they destroy their lives, they commit a most unnatural act. Defying their instinctive desire for self-preservation, they seem bent upon self-destruction. They work against their own deepest instinct. As they are humbled by the terrific beating administered by alcohol, the grace of God can enter them and expel their obsession. Here their powerful instinct to live can cooperate fully with their Creator’s desire to give them new life. For nature and God alike abhor suicide.
 
-  But most of our other difficulties don’t fall under such a category at all. Every normal person wants, for example, to eat, to reproduce, to be somebody in the society of their community. And they wish to be reasonably safe and secure as they try to attain these things. Indeed, God made them that way. God did not design humans to destroy themselves by alcohol, but God did give humans instincts to help them to stay alive.
+  But most of our other difficulties don’t fall under such a category at all. Every normal person wants, for example, to eat, to reproduce, to be somebody in the society of their fellows. And they wish to be reasonably safe and secure as they try to attain these things. Indeed, God made them that way. God did not design humans to destroy themselves by alcohol, but God did give humans instincts to help them to stay alive.
 
 PAGE 65
 
@@ -40,7 +40,7 @@ with all the honesty that we can summon, is to try to have it. Even then the bes
 
   We who have escaped these extremes are apt to congratulate ourselves. Yet can we? After all, hasn’t it been selfinterest, pure and simple, that has enabled most of us to escape? Not much spiritual effort is involved in avoiding excesses which will bring us punishment anyway. But when we face up to the less violent aspects of these very same defects, then where do we stand?
 
-  What we must recognize now is that we exult in some of our defects. We really love them. Who, for example, doesn’t like to feel just a little superior to the next person, or even quite a lot superior? Isn’t it true that we like to let greed masquerade as ambition? To think of liking lust seems im-
+  What we must recognize now is that we exult in some of our defects. We really love them. Who, for example, doesn’t like to feel just a little superior to the next fellow, or even quite a lot superior? Isn’t it true that we like to let greed masquerade as ambition? To think of liking lust seems im-
 
 PAGE 67
 

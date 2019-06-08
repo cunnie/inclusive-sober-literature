@@ -58,7 +58,7 @@ PAGE 75
 
 PAGE 76
 
-  As we approach the actual taking of Step Seven, it might be well if we A.A.’s inquire once more just what our deeper objectives are. Each of us would like to live at peace with themselves and with their peers. We would like to be assured that the grace of God can do for us what we cannot do for ourselves. We have seen that character defects based upon shortsighted or unworthy desires are the obstacles that block our path toward these objectives. We now clearly see that we have been making unreasonable demands upon ourselves, upon others, and upon God.
+  As we approach the actual taking of Step Seven, it might be well if we A.A.’s inquire once more just what our deeper objectives are. Each of us would like to live at peace with themselves and with their fellows. We would like to be assured that the grace of God can do for us what we cannot do for ourselves. We have seen that character defects based upon shortsighted or unworthy desires are the obstacles that block our path toward these objectives. We now clearly see that we have been making unreasonable demands upon ourselves, upon others, and upon God.
 
   The chief activator of our defects has been self-centered fear—primarily fear that we would lose something we already possessed or would fail to get something we demanded. Living upon a basis of unsatisfied demands, we were in a state of continual disturbance and frustration. Therefore, no peace was to be had unless we could find a means of reducing these demands. The difference between a demand and a simple request is plain to anyone.
 

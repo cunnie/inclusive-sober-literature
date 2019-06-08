@@ -12,7 +12,7 @@ PAGE 26
 
   At this juncture, their A.A. sponsor usually laughs. This, the newcomer thinks, is just about the last straw. This is the beginning of the end. And so it is: the beginning of the end of their old life, and the beginning of their emergence into a new one. Their sponsor probably says, “Take it easy. The hoop you have to jump through is a lot wider than you think. At least I’ve found it so. So did a friend of mine who was a one-time vice-president of the American Atheist Society, but he got through with room to spare.”
 
-  “Well,” says the newcomer, “I know you’re telling me the truth. It’s no doubt a fact that A.A. is full of people who once believed as I do. But just how, in these circumstances, does someone ‘take it easy’? That’s what I want to know.”
+  “Well,” says the newcomer, “I know you’re telling me the truth. It’s no doubt a fact that A.A. is full of people who once believed as I do. But just how, in these circumstances, does a fellow ‘take it easy’? That’s what I want to know.”
 
   “That,” agrees the sponsor, “is a very good question indeed. I think I can tell you exactly how to relax. You won’t have to work at it very hard, either. Listen, if you will, to these three statements. First, Alcoholics Anonymous does not demand that you believe anything. All of its Twelve Steps are but suggestions. Second, to get sober and to stay sober, you don’t have to swallow all of Step Two right now. Looking back, I find that I took it piecemeal myself. Third, all you really need is a truly open mind. Just resign from the debating society and quit bothering yourself with such deep questions as whether it was the hen or the egg that came first. Again I say, all you need is the open mind.”
 

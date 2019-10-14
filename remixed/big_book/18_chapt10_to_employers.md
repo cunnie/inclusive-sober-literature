@@ -5,11 +5,7 @@ Chapter 10
 To Employers
 --------------------
 
-  Among many employers nowadays, we think of one member who has spent much of his life in
-the world of big business. He has hired and fired hun­
-dreds of men. He knows the alcoholic as the employer
-sees him. His present views ought to prove exception­
-ally useful to business men everywhere.
+  Among many employers nowadays, we think of one member who has spent much of his life in the world of big business. He has hired and fired hundreds of men. He knows the alcoholic as the employer sees him. His present views ought to prove exceptionally useful to professionals everywhere.
 
   But let him tell you:
 
@@ -25,9 +21,9 @@ desk, a newspaper clipping fell out. It was the obituary of one of the best sale
 
   Still another experience: A woman’s voice came faintly over long distance from Virginia. She wanted to know if her husband’s company insurance was still in force. Four days before he had hanged himself in his woodshed. I had been obliged to discharge him for drinking, though he was brilliant, alert, and one of the best organizers I have ever known.
 
-  Here were three exceptional men lost to this world because I did not understand alcoholism as I do now. What irony—I became an alcoholic myself! And but for the intervention of an understanding person, I might have followed in their footsteps. My downfall cost the business community unknown thousands of dollars, for it takes real money to train a man for an executive position. This kind of waste goes on unabated. We think the business fabric is shot through with a situation which might be helped by better understanding all around.
+  Here were three exceptional men lost to this world because I did not understand alcoholism as I do now. What irony—I became an alcoholic myself! And but for the intervention of an understanding person, I might have followed in their footsteps. My downfall cost the business community unknown thousands of dollars, for it takes real money to train someone for an executive position. This kind of waste goes on unabated. We think the business fabric is shot through with a situation which might be helped by better understanding all around.
 
-  Nearly every modern employer feels a moral responsibility for the well-being of his help, and he tries to meet these responsibilities. That he has not always done so for the alcoholic is easily understood. To him the alcoholic has often seemed a fool of the first magnitude. Because of the employee’s special ability, or of his own strong personal attachment to him, the employer has sometimes kept such a man at work long beyond a reasonable period. Some employers have tried every known remedy. In only a few instances
+  Nearly every modern employer feels a moral responsibility for the well-being of their help, and they try to meet these responsibilities. That they have not always done so for the alcoholic is easily understood. To them the alcoholic has often seemed a fool of the first magnitude. Because of the employee’s special ability, or of their own strong personal attachment to their employee, the employer has sometimes kept an alcoholic at work long beyond a reasonable period. Some employers have tried every known remedy. In only a few instances
 
 PAGE 138
 
@@ -47,77 +43,77 @@ brother-executive suffered from a serious illness. There was nothing to do but w
 
   If you desire to help it might be well to disregard your own drinking, or lack of it. Whether you are a hard drinker, a moderate drinker or a teetotaler, you may have some pretty strong opinions, perhaps prejudices. Those who drink moderately may be more annoyed with an alcoholic than a total abstainer would be. Drinking occasionally, and understanding your own reactions, it is possible for you to become quite sure of many things which, so far as the alcoholic is concerned, are not always so. As a moderate drinker, you can take your liquor or leave it alone. Whenever you want to, you control your drinking. Of an evening, you can go on a mild bender, get up in the morning, shake your head and go to business. To you, liquor is no real problem. You cannot see why it should be to anyone else, save the spineless and stupid.
 
-  When dealing with an alcoholic, there may be a natural annoyance that a man could be so weak, stupid and irresponsible. Even when you understand the malady better, you may feel this feeling rising.
+  When dealing with an alcoholic, there may be a natural annoyance that someone could be so weak, stupid and irresponsible. Even when you understand the malady better, you may feel this feeling rising.
 
-  A look at the alcoholic in your organization is many times illuminating. Is he not usually brilliant, fastthinking, imaginative and likeable? When sober, does
+  A look at the alcoholic in your organization is many times illuminating. Are they not usually brilliant, fast-thinking, imaginative and likeable? When sober, do
 
 PAGE 140
 
-he not work hard and have a knack of getting things done? If he had these qualities and did not drink would he be worth retaining? Should he have the same consideration as other ailing employees? Is he worth salvaging? If your decision is yes, whether the reason be humanitarian or business or both, then the following suggestions may be helpful.
+they not work hard and have a knack of getting things done? If they have these qualities and did not drink would they be worth retaining? Should they have the same consideration as other ailing employees? Are they worth salvaging? If your decision is yes, whether the reason be humanitarian or business or both, then the following suggestions may be helpful.
 
-  Can you discard the feeling that you are dealing only with habit, with stubbornness, or a weak will? If this presents difficulty, re-reading chapters two and three, where the alcoholic sickness is discussed at length might be worth while. You, as a business man, want to know the necessities before considering the result. If you concede that your employee is ill, can he be forgiven for what he has done in the past? Can his past absurdities be forgotten? Can it be appreciated that he has been a victim of crooked thinking, directly caused by the action of alcohol on his brain?
+  Can you discard the feeling that you are dealing only with habit, with stubbornness, or a weak will? If this presents difficulty, re-reading chapters two and three, where the alcoholic sickness is discussed at length might be worth while. You, as a professional, want to know the necessities before considering the result. If you concede that your employee is ill, can they be forgiven for what they have done in the past? Can their past absurdities be forgotten? Can it be appreciated that they have been a victim of crooked thinking, directly caused by the action of alcohol on their brain?
 
-  I well remember the shock I received when a prominent doctor in Chicago told me of cases where pressure of the spinal ﬂuid actually ruptured the brain. No wonder an alcoholic is strangely irrational. Who wouldn’t be, with such a fevered brain? Normal drinkers are not so affected, nor can they understand the aberrations of the alcoholic.
+  I well remember the shock I received when a prominent doctor in Chicago told me of cases where pressure of the spinal fluid actually ruptured the brain. No wonder an alcoholic is strangely irrational. Who wouldn’t be, with such a fevered brain? Normal drinkers are not so affected, nor can they understand the aberrations of the alcoholic.
 
-  Your man has probably been trying to conceal a number of scrapes, perhaps pretty messy ones. They may be disgusting. You may be at a loss to understand how such a seemingly above-board chap could be so involved. But these scrapes can generally be charged, no matter how bad, to the abnormal action of alcohol on his mind. When drinking, or getting over a bout, an alcoholic, sometimes the model of honesty when
+  Your employee has probably been trying to conceal a number of scrapes, perhaps pretty messy ones. They may be disgusting. You may be at a loss to understand how such a seemingly above-board person could be so involved. But these scrapes can generally be charged, no matter how bad, to the abnormal action of alcohol on their mind. When drinking, or getting over a bout, an alcoholic, sometimes the model of honesty when
 
 PAGE 141
 
-normal, will do incredible things. Afterward, his revulsion will be terrible. Nearly always, these antics indicate nothing more than temporary conditions.
+normal, will do incredible things. Afterward, their revulsion will be terrible. Nearly always, these antics indicate nothing more than temporary conditions.
 
-  This is not to say that all alcoholics are honest and upright when not drinking. Of course that isn’t so, and such people often may impose on you. Seeing your attempt to understand and help, some men will try to take advantage of your kindness. If you are sure your man does not want to stop, he may as well be discharged, the sooner the better. You are not doing him a favor by keeping him on. Firing such an individual may prove a blessing to him. It may be just the jolt he needs. I know, in my own particular case, that nothing my company could have done would have stopped me for, so long as I was able to hold my position, I could not possibly realize how serious my situation was. Had they fired me first, and had they then taken steps to see that I was presented with the solution contained in this book, I might have returned to them six months later, a well man.
+  This is not to say that all alcoholics are honest and upright when not drinking. Of course that isn’t so, and such people often may impose on you. Seeing your attempt to understand and help, some will try to take advantage of your kindness. If you are sure your employee does not want to stop, they may as well be discharged, the sooner the better. You are not doing them a favor by keeping them on. Firing such an individual may prove a blessing to them. It may be just the jolt they need. I know, in my own particular case, that nothing my company could have done would have stopped me for, so long as I was able to hold my position, I could not possibly realize how serious my situation was. Had they fired me first, and had they then taken steps to see that I was presented with the solution contained in this book, I might have returned to them six months later, a well man.
 
-  But there are many men who want to stop, and with them you can go far. Your understanding treatment of their cases will pay dividends.
+  But there are many people who want to stop, and with them you can go far. Your understanding treatment of their cases will pay dividends.
 
-  Perhaps you have such a man in mind. He wants to quit drinking and you want to help him, even if it be only a matter of good business. You now know more about alcoholism. You can see that he is mentally and physically sick. You are willing to overlook his past performances. Suppose an approach is made something like this:
+  Perhaps you have such an employee in mind. They want to quit drinking and you want to help them, even if it be only a matter of good business. You now know more about alcoholism. You can see that they are mentally and physically sick. You are willing to overlook their past performances. Suppose an approach is made something like this:
 
-  State that you know about his drinking, and that it must stop. You might say you appreciate his abilities, would like to keep him, but cannot if he continues to
+  State that you know about their drinking, and that it must stop. You might say you appreciate their abilities, would like to keep them, but cannot if they continue to
 
 PAGE 142
 
 drink. A firm attitude at this point has helped many of us.
 
-  Next he can be assured that you do not intend to lecture, moralize, or condemn; that if this was done formerly, it was because of misunderstanding. If possible express a lack of hard feeling toward him. At this point, it might be well to explain alcoholism, the illness. Say that you believe he is a gravely ill person, with this qualification—being perhaps fatally ill, does he want to get well? You ask, because many alcoholics, being warped and drugged, do not want to quit. But does he? Will he take every necessary step, submit to anything to get well, to stop drinking forever?
+  Next they can be assured that you do not intend to lecture, moralize, or condemn; that if this was done formerly, it was because of misunderstanding. If possible express a lack of hard feeling toward them. At this point, it might be well to explain alcoholism, the illness. Say that you believe they are a gravely ill person, with this qualification—being perhaps fatally ill, do they want to get well? You ask, because many alcoholics, being warped and drugged, do not want to quit. But do they? Will they take every necessary step, submit to anything to get well, to stop drinking forever?
 
-  If he says yes, does he really mean it, or down inside does he think he is fooling you, and that after rest and treatment he will be able to get away with a few drinks now and then? We believe a man should be thoroughly probed on these points. Be satisfied he is not deceiving himself or you.
+  If they say yes, do they really mean it, or down inside do they think they are fooling you, and that after rest and treatment they will be able to get away with a few drinks now and then? We believe someone should be thoroughly probed on these points. Be satisfied they are not deceiving themselves or you.
 
-  Whether you mention this book is a matter for your discretion. If he temporizes and still thinks he can ever drink again, even beer, he might as well be discharged after the next bender which, if an alcoholic, he is almost certain to have. He should understand that emphatically. Either you are dealing with a man who can and will get well or you are not. If not, why waste time with him? This may seem severe, but it is usually the best course.
+  Whether you mention this book is a matter for your discretion. If they temporize and still think they can ever drink again, even beer, they might as well be discharged after the next bender which, if an alcoholic, they are almost certain to have. They should understand that emphatically. Either you are dealing with someone who can and will get well or you are not. If not, why waste time with them? This may seem severe, but it is usually the best course.
 
-  After satisfying yourself that your man wants to recover and that he will go to any extreme to do so, you may suggest a definite course of action. For most alcoholics who are drinking, or who are just getting
+  After satisfying yourself that your employee wants to recover and that they will go to any extreme to do so, you may suggest a definite course of action. For most alcoholics who are drinking, or who are just getting
 
 PAGE 143
 
-over a spree, a certain amount of physical treatment is desirable, even imperative. The matter of physical treatment should, of course, be referred to your own doctor. Whatever the method, its object is to thoroughly clear mind and body of the effects of alcohol. In competent hands, this seldom takes long nor is it very expensive. Your man will fare better if placed in such physical condition that he can think straight and no longer craves liquor. If you propose such a procedure to him, it may be necessary to advance the cost of treatment, but we believe it should be made plain that any expense will later be deducted from his pay. It is better for him to feel fully responsible.
+over a spree, a certain amount of physical treatment is desirable, even imperative. The matter of physical treatment should, of course, be referred to your own doctor. Whatever the method, its object is to thoroughly clear mind and body of the effects of alcohol. In competent hands, this seldom takes long nor is it very expensive. Your employee will fare better if placed in such physical condition that they can think straight and no longer craves liquor. If you propose such a procedure to them, it may be necessary to advance the cost of treatment, but we believe it should be made plain that any expense will later be deducted from their pay. It is better for them to feel fully responsible.
 
-  If your man accepts your offer, it should be pointed out that physical treatment is but a small part of the picture. Though you are providing him with the best possible medical attention, he should understand that he must undergo a change of heart. To get over drinking will require a transformation of thought and attitude. We all had to place recovery above everything, for without recovery we would have lost both home and business.
+  If your employee accepts your offer, it should be pointed out that physical treatment is but a small part of the picture. Though you are providing them with the best possible medical attention, they should understand that they must undergo a change of heart. To get over drinking will require a transformation of thought and attitude. We all had to place recovery above everything, for without recovery we would have lost both home and business.
 
-  Can you have every confidence in his ability to recover? While on the subject of confidence, can you adopt the attitude that so far as you are concerned this will be a strictly personal matter, that his alcoholic derelictions, the treatment about to be undertaken, will never be discussed without his consent? It might be well to have a long chat with him on his return.
+  Can you have every confidence in their ability to recover? While on the subject of confidence, can you adopt the attitude that so far as you are concerned this will be a strictly personal matter, that their alcoholic derelictions, the treatment about to be undertaken, will never be discussed without their consent? It might be well to have a long chat with them on their return.
 
   To return to the subject matter of this book: It contains full suggestions by which the employee may
 
 PAGE 144
 
-solve his problem. To you, some of the ideas which it contains are novel. Perhaps you are not quite in sympathy with the approach we suggest. By no means do we offer it as the last word on this subject, but so far as we are concerned, it has worked with us. After all, are you not looking for results rather than methods? Whether your employee likes it or not, he will learn the grim truth about alcoholism. That won’t hurt him a bit, even though he does not go for this remedy.
+solve their problem. To you, some of the ideas which it contains are novel. Perhaps you are not quite in sympathy with the approach we suggest. By no means do we offer it as the last word on this subject, but so far as we are concerned, it has worked with us. After all, are you not looking for results rather than methods? Whether your employee likes it or not, they will learn the grim truth about alcoholism. That won’t hurt them a bit, even though they do not go for this remedy.
 
-  We suggest you draw the book to the attention of the doctor who is to attend your patient during treatment. If the book is read the moment the patient is able, while acutely depressed, realization of his condition may come to him.
+  We suggest you draw the book to the attention of the doctor who is to attend your patient during treatment. If the book is read the moment the patient is able, while acutely depressed, realization of their condition may come to him.
 
-  We hope the doctor will tell the patient the truth about his condition, whatever that happens to be. When the man is presented with this volume it is best that no one tell him he must abide by its suggestions. The man must decide for himself.
+  We hope the doctor will tell the patient the truth about their condition, whatever that happens to be. When the patient is presented with this volume it is best that no one tell them they must abide by its suggestions. They must decide for themselves.
 
   You are betting, of course, that your changed attitude plus the contents of this book will turn the trick. In some cases it will, and in others it may not. But we think that if you persevere, the percentage of successes will gratify you. As our work spreads and our numbers increase, we hope your employees may be put in personal contact with some of us. Meanwhile, we are sure a great deal can be accomplished by the use of the book alone.
 
-  On your employee’s return, talk with him. Ask him if he thinks he has the answer. If he feels free to discuss his problems with you, if he knows you under­
+  On your employee’s return, talk with them. Ask them if they think they have the answer. If they feel free to discuss his problems with you, if they know you under­
 
 PAGE 145
 
-stand and will not be upset by anything he wishes to say, he will probably be off to a fast start.
+stand and will not be upset by anything they wish to say, they will probably be off to a fast start.
 
-  In this connection, can you remain undisturbed if the man proceeds to tell you shocking things? He may, for example, reveal that he has padded his expense account or that he has planned to take your best customers away from you. In fact, he may say almost anything if he has accepted our solution which, as you know, demands rigorous honesty. Can you charge this off as you would a bad account and start fresh with him? If he owes you money you may wish to make terms.
+  In this connection, can you remain undisturbed if the employee proceeds to tell you shocking things? They may, for example, reveal that they have padded their expense account or that they have planned to take your best customers away from you. In fact, they may say almost anything if they have accepted our solution which, as you know, demands rigorous honesty. Can you charge this off as you would a bad account and start fresh with them? If they owe you money you may wish to make terms.
 
-  If he speaks of his home situation, you can undoubtedly make helpful suggestions. Can he talk frankly with you so long as he does not bear business tales or criticize his associates? With this kind of employee such an attitude will command undying loyalty.
+  If they speak of their home situation, you can undoubtedly make helpful suggestions. Can they talk frankly with you so long as they do not bear business tales or criticize their associates? With this kind of employee such an attitude will command undying loyalty.
 
-  The greatest enemies of us alcoholics are resentment, jealousy, envy, frustration, and fear. Wherever men are gathered together in business there will be rivalries and, arising out of these, a certain amount of office politics. Sometimes we alcoholics have an idea that people are trying to pull us down. Often this is not so at all. But sometimes our drinking will be used politically.
+  The greatest enemies of us alcoholics are resentment, jealousy, envy, frustration, and fear. Wherever people are gathered together in business there will be rivalries and, arising out of these, a certain amount of office politics. Sometimes we alcoholics have an idea that people are trying to pull us down. Often this is not so at all. But sometimes our drinking will be used politically.
 
-  One instance comes to mind in which a malicious individual was always making friendly little jokes about an alcoholic’s drinking exploits. In this way he was slyly carrying tales. In another case, an alcoholic was sent to a hospital for treatment. Only a few knew of it at first but, within a short time, it was billboarded throughout the entire company. Naturally this sort of thing decreased the man’s chance of recovery. The
+  One instance comes to mind in which a malicious individual was always making friendly little jokes about an alcoholic’s drinking exploits. In this way they were slyly carrying tales. In another case, an alcoholic was sent to a hospital for treatment. Only a few knew of it at first but, within a short time, it was billboarded throughout the entire company. Naturally this sort of thing decreased the alcoholic’s chance of recovery. The
 
 PAGE 146
 

@@ -5,11 +5,7 @@ Chapter 10
 To Employers
 --------------------
 
-  Among many employers nowadays, we think of one member who has spent much of his life in
-the world of big business. He has hired and fired hun­
-dreds of men. He knows the alcoholic as the employer
-sees him. His present views ought to prove exception­
-ally useful to business men everywhere.
+  Among many employers nowadays, we think of one member who has spent much of his life in the world of big business. He has hired and fired hundreds of men. He knows the alcoholic as the employer sees him. His present views ought to prove exceptionally useful to business men everywhere.
 
   But let him tell you:
 

@@ -141,11 +141,7 @@ and the fact that you went away for treatment will not be mentioned. But if you 
 
   Your junior executive may not agree with the contents of our book. He need not, and often should not show it to his alcoholic prospect. But at least he will understand the problem and will no longer be misled by ordinary promises. He will be able to take a position with such a man which is eminently fair and square. He will have no further reason for covering up an alcoholic employee.
 
-  It boils right down to this: No man should be fired
-just because he is alcoholic. If he wants to stop, he
-should be afforded a real chance. If he cannot or does
-not want to stop, he should be discharged. The excep­
-tions are few.
+  It boils right down to this: No man should be fired just because he is alcoholic. If he wants to stop, he should be afforded a real chance. If he cannot or does not want to stop, he should be discharged. The exceptions are few.
 
   We think this method of approach will accomplish several things. It will permit the rehabilitation of good men. At the same time you will feel no reluctance to rid yourself of those who cannot or will not stop. Alcoholism may be causing your organization considerable damage in its waste of time, men and reputation. We hope our suggestions will help you plug up this sometimes serious leak. We think we are sensible when we urge that you stop this waste and give your worthwhile man a chance.
 

@@ -117,37 +117,33 @@ stand and will not be upset by anything they wish to say, they will probably be 
 
 PAGE 146
 
-employer can many times protect the victim from this kind of talk. The employer cannot play favorites, but he can always defend a man from needless provocation and unfair criticism.
+employer can many times protect the victim from this kind of talk. The employer cannot play favorites, but they can always defend an employee from needless provocation and unfair criticism.
 
-  As a class, alcoholics are energetic people. They work hard and they play hard. Your man should be on his mettle to make good. Being somewhat weakened, and faced with physical and mental readjustment to a life which knows no alcohol, he may overdo. You may have to curb his desire to work sixteen hours a day. You may need to encourage him to play once in a while. He may wish to do a lot for other alcoholics and something of the sort may come up during business hours. A reasonable amount of latitude will be helpful. This work is necessary to maintain his sobriety.
+  As a class, alcoholics are energetic people. They work hard and they play hard. Your employee should be on their mettle to make good. Being somewhat weakened, and faced with physical and mental readjustment to a life which knows no alcohol, they may overdo. You may have to curb their desire to work sixteen hours a day. You may need to encourage them to play once in a while. They may wish to do a lot for other alcoholics and something of the sort may come up during business hours. A reasonable amount of latitude will be helpful. This work is necessary to maintain their sobriety.
 
-  After your man has gone along without drinking for a few months, you may be able to make use of his services with other employees who are giving you the alcoholic run-around—provided, of course, they are willing to have a third party in the picture. An alcoholic who has recovered, but holds a relatively unimportant job, can talk to a man with a better position. Being on a radically different basis of life, he will never take advantage of the situation.
+  After your employee has gone along without drinking for a few months, you may be able to make use of their services with other employees who are giving you the alcoholic run-around—provided, of course, they are willing to have a third party in the picture. An alcoholic who has recovered, but holds a relatively unimportant job, can talk to a co-worker with a better position. Being on a radically different basis of life, they will never take advantage of the situation.
 
-  Your man may be trusted. Long experience with alcoholic excuses naturally arouses suspicion. When his wife next calls saying he is sick, you might jump to the conclusion he is drunk. If he is, and is still trying to recover, he will tell you about it even if it means the loss of his job. For he knows he must be honest if he would live at all. He will appreciate knowing you are not bothering your head about him,
+  Your employee may be trusted. Long experience with alcoholic excuses naturally arouses suspicion. When their partner next calls saying your employee is sick, you might jump to the conclusion they are drunk. If they are, and are still trying to recover, they will tell you about it even if it means the loss of their job. For they know they must be honest if they would live at all. They will appreciate knowing you are not bothering your head about them,
 
 PAGE 147
 
-that you are not suspicious nor are you trying to run his life so he will be shielded from temptation to drink. If he is conscientiously following the program of recovery he can go anywhere your business may call him.
+that you are not suspicious nor are you trying to run their life so they will be shielded from temptation to drink. If they are conscientiously following the program of recovery they can go anywhere your business may call them.
 
-  In case he does stumble, even once, you will have to decide whether to let him go. If you are sure he doesn’t mean business, there is no doubt you should discharge him. If, on the contrary, you are sure he is doing his utmost, you may wish to give him another chance. But you should feel under no obligation to keep him on, for your obligation has been well discharged already.
+  In case they do stumble, even once, you will have to decide whether to let them go. If you are sure they don’t mean business, there is no doubt you should discharge them. If, on the contrary, you are sure they are doing their utmost, you may wish to give them another chance. But you should feel under no obligation to keep them on, for your obligation has been well discharged already.
 
-  There is another thing you might wish to do. If your organization is a large one, your junior executives might be provided with this book. You might let them know you have no quarrel with the alcoholics of your organization. These juniors are often in a difficult position. Men under them are frequently their friends. So, for one reason or another, they cover these men, hoping matters will take a turn for the better. They often jeopardize their own positions by trying to help serious drinkers who should have been fired long ago, or else given an opportunity to get well.
+  There is another thing you might wish to do. If your organization is a large one, your junior executives might be provided with this book. You might let them know you have no quarrel with the alcoholics of your organization. These juniors are often in a difficult position. Employees under them are frequently their friends. So, for one reason or another, they cover these employees, hoping matters will take a turn for the better. They often jeopardize their own positions by trying to help serious drinkers who should have been fired long ago, or else given an opportunity to get well.
 
-  After reading this book, a junior executive can go to such a man and say approximately this, “Look here, Ed. Do you want to stop drinking or not? You put me on the spot every time you get drunk. It isn’t fair to me or the firm. I have been learning something about alcoholism. If you are an alcoholic, you are a mighty sick man. You act like one. The firm wants to help you get over it, and if you are interested, there is a way out. If you take it, your past will be forgotten
+  After reading this book, a junior executive can go to such an employee and say approximately this, “Look here, Alex. Do you want to stop drinking or not? You put me on the spot every time you get drunk. It isn’t fair to me or the firm. I have been learning something about alcoholism. If you are an alcoholic, you are a mighty sick person. You act like one. The firm wants to help you get over it, and if you are interested, there is a way out. If you take it, your past will be forgotten
 
 PAGE 148
 
 and the fact that you went away for treatment will not be mentioned. But if you cannot or will not stop drinking, I think you ought to resign.”
 
-  Your junior executive may not agree with the contents of our book. He need not, and often should not show it to his alcoholic prospect. But at least he will understand the problem and will no longer be misled by ordinary promises. He will be able to take a position with such a man which is eminently fair and square. He will have no further reason for covering up an alcoholic employee.
+  Your junior executive may not agree with the contents of our book. They need not, and often should not show it to their alcoholic prospect. But at least they will understand the problem and will no longer be misled by ordinary promises. They will be able to take a position with such an alcoholic which is eminently fair and square. They will have no further reason for covering up an alcoholic employee.
 
-  It boils right down to this: No man should be fired
-just because he is alcoholic. If he wants to stop, he
-should be afforded a real chance. If he cannot or does
-not want to stop, he should be discharged. The excep­
-tions are few.
+  It boils right down to this: No one should be fired just because they are alcoholic. If they want to stop, they should be afforded a real chance. If they cannot or do not want to stop, they should be discharged. The exceptions are few.
 
-  We think this method of approach will accomplish several things. It will permit the rehabilitation of good men. At the same time you will feel no reluctance to rid yourself of those who cannot or will not stop. Alcoholism may be causing your organization considerable damage in its waste of time, men and reputation. We hope our suggestions will help you plug up this sometimes serious leak. We think we are sensible when we urge that you stop this waste and give your worthwhile man a chance.
+  We think this method of approach will accomplish several things. It will permit the rehabilitation of good people. At the same time you will feel no reluctance to rid yourself of those who cannot or will not stop. Alcoholism may be causing your organization considerable damage in its waste of time, human resources and reputation. We hope our suggestions will help you plug up this sometimes serious leak. We think we are sensible when we urge that you stop this waste and give your worthwhile employee a chance.
 
   The other day an approach was made to the vice president of a large industrial concern. He remarked: “I’m mighty glad you fellows got over your drinking. But the policy of this company is not to interfere with the habits of our employees. If a man drinks so much that his job suffers, we fire him. I don’t see how you can be of any help to us for, as you see, we don’t have
 
@@ -157,9 +153,9 @@ any alcoholic problem.” This same company spends millions for research every y
 
   Perhaps this is a typical attitude. We, who have collectively seen a great deal of business life, at least from the alcoholic angle, had to smile at this gentleman’s sincere opinion. He might be shocked if he knew how much alcoholism is costing his organization a year. That company may harbor many actual or potential alcoholics. We believe that managers of large enterprises often have little idea how prevalent this problem is. Even if you feel your organization has no alcoholic problem, it might pay to take another look down the line. You may make some interesting discoveries.
 
-  Of course, this chapter refers to alcoholics, sick people, deranged men. What our friend, the vice president, had in mind was the habitual or whoopee drinker. As to them, his policy is undoubtedly sound, but he did not distinguish between such people and the alcoholic.
+  Of course, this chapter refers to alcoholics, sick people, deranged people. What our friend, the vice president, had in mind was the habitual or whoopee drinker. As to them, his policy is undoubtedly sound, but he did not distinguish between such people and the alcoholic.
 
-  It is not to be expected that an alcoholic employee will receive a disproportionate amount of time and attention. He should not be made a favorite. The right kind of man, the kind who recovers, will not want this sort of thing. He will not impose. Far from it. He will work like the devil and thank you to his dying day.
+  It is not to be expected that an alcoholic employee will receive a disproportionate amount of time and attention. They should not be made a favorite. The right kind of employee, the kind who recovers, will not want this sort of thing. They will not impose. Far from it. They will work like the devil and thank you to their dying day.
 
   Today I own a little company. There are two
 

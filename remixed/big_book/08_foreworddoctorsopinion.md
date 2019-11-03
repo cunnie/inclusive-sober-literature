@@ -2,7 +2,7 @@ PAGE xxv
 
 # THE DOCTOR’S OPINION
 
-  We of Alcoholics Anonymous believe that the reader will be interested in the medical estimate of the plan of recovery described in this book. Convincing testimony must surely come from medical men who have had experience with the sufferings of our members and have witnessed our return to health. A well-known doctor, chief physician at a nationally prominent hospital specializing in alcoholic and drug addiction, gave Alcoholics Anonymous this letter:
+  We of Alcoholics Anonymous believe that the reader will be interested in the medical estimate of the plan of recovery described in this book. Convincing testimony must surely come from medical physicians who have had experience with the sufferings of our members and have witnessed our return to health. A well-known doctor, chief physician at a nationally prominent hospital specializing in alcoholic and drug addiction, gave Alcoholics Anonymous this letter:
 
 To Whom It May Concern:
 
@@ -18,18 +18,18 @@ To Whom It May Concern:
 
 PAGE xxvi
 
-growth inherent in this group they may mark a new epoch in the annals of alcoholism. These men may well have a remedy for thousands of such situations.
+growth inherent in this group they may mark a new epoch in the annals of alcoholism. These [people] may well have a remedy for thousands of such situations.
 
   You may rely absolutely on anything they say about themselves.
 
 Very truly yours,
 William D. Silkworth, M.D.
 
-  The physician who, at our request, gave us this letter, has been kind enough to enlarge upon his views in another statement which follows. In this statement he confirms what we who have suffered alcoholic torture must believe—that the body of the alcoholic is quite as abnormal as his mind. It did not satisfy us to be told that we could not control our drinking just because we were maladjusted to life, that we were in full flight from reality, or were outright mental defectives. These things were true to some extent, in fact, to a considerable extent with some of us. But we are sure that our bodies were sickened as well. In our belief, any picture of the alcoholic which leaves out this physical factor is incomplete.
+  The physician who, at our request, gave us this letter, has been kind enough to enlarge upon his views in another statement which follows. In this statement he confirms what we who have suffered alcoholic torture must believe—that the body of the alcoholic is quite as abnormal as their mind. It did not satisfy us to be told that we could not control our drinking just because we were maladjusted to life, that we were in full flight from reality, or were outright mental defectives. These things were true to some extent, in fact, to a considerable extent with some of us. But we are sure that our bodies were sickened as well. In our belief, any picture of the alcoholic which leaves out this physical factor is incomplete.
 
-The doctor’s theory that we have an allergy to alcohol interests us. As laymen, our opinion as to its soundness may, of course, mean little. But as exproblem drinkers, we can say that his explanation makes good sense. It explains many things for which we cannot otherwise account.
+The doctor’s theory that we have an allergy to alcohol interests us. As laypeople, our opinion as to its soundness may, of course, mean little. But as exproblem drinkers, we can say that his explanation makes good sense. It explains many things for which we cannot otherwise account.
 
-  Though we work out our solution on the spiritual as well as an altruistic plane, we favor hospitalization for the alcoholic who is very jittery or befogged. More often than not, it is imperative that a man’s brain be cleared before he is approached, as he has then a bet-
+  Though we work out our solution on the spiritual as well as an altruistic plane, we favor hospitalization for the alcoholic who is very jittery or befogged. More often than not, it is imperative that a persons’s brain be cleared before they are approached, as they have then a bet-
 
 PAGE xxvii
 
@@ -47,9 +47,9 @@ The doctor writes:
 
   Many years ago one of the leading contributors to this book came under our care in this hospital and while here he acquired some ideas which he put into practical application at once.
 
-  Later, he requested the privilege of being allowed to tell his story to other patients here and with some misgiving, we consented. The cases we have followed through have been most interesting; in fact, many of them are amazing. The unselfishness of these men as we have come to know them, the entire absence of profit motive, and their community spirit, is indeed inspiring to one who has labored long and wearily in this alcoholic field. They believe in themselves, and still more in the Power which pulls chronic alcoholics back from the gates of death.
+  Later, he requested the privilege of being allowed to tell his story to other patients here and with some misgiving, we consented. The cases we have followed through have been most interesting; in fact, many of them are amazing. The unselfishness of these [people] as we have come to know them, the entire absence of profit motive, and their community spirit, is indeed inspiring to one who has labored long and wearily in this alcoholic field. They believe in themselves, and still more in the Power which pulls chronic alcoholics back from the gates of death.
 
-  Of course an alcoholic ought to be freed from his physical
+  Of course an alcoholic ought to be freed from [their] physical
 
 PAGE xxviii
 
@@ -59,31 +59,31 @@ craving for liquor, and this often requires a definite hospital procedure, befor
 
   Frothy emotional appeal seldom suffices. The message which can interest and hold these alcoholic people must have depth and weight. In nearly all cases, their ideals must be grounded in a power greater than themselves, if they are to re-create their lives.
 
-  If any feel that as psychiatrists directing a hospital for alcoholics we appear somewhat sentimental, let them stand with us a while on the firing line, see the tragedies, the despairing wives, the little children; let the solving of these problems become a part of their daily work, and even of their sleeping moments, and the most cynical will not wonder that we have accepted and encouraged this movement. We feel, after many years of experience, that we have found nothing which has contributed more to the rehabilitation of these men than the altruistic movement now growing up among them.
+  If any feel that as psychiatrists directing a hospital for alcoholics we appear somewhat sentimental, let them stand with us a while on the firing line, see the tragedies, the despairing [partners], the little children; let the solving of these problems become a part of their daily work, and even of their sleeping moments, and the most cynical will not wonder that we have accepted and encouraged this movement. We feel, after many years of experience, that we have found nothing which has contributed more to the rehabilitation of these [alcoholics] than the altruistic movement now growing up among them.
 
-  Men and women drink essentially because they like the effect produced by alcohol. The sensation is so elusive that, while they admit it is injurious, they cannot after a time differentiate the true from the false. To them, their alcoholic life seems the only normal one. They are restless, irritable and discontented, unless they can again experience
+  [People] drink essentially because they like the effect produced by alcohol. The sensation is so elusive that, while they admit it is injurious, they cannot after a time differentiate the true from the false. To them, their alcoholic life seems the only normal one. They are restless, irritable and discontented, unless they can again experience
 
 PAGE xxix
 
 the sense of ease and comfort which comes at once by taking a few drinks—drinks which they see others taking with impunity. After they have succumbed to the desire again, as so many do, and the phenomenon of craving develops, they pass through the well-known stages of a spree, emerging remorseful, with a firm resolution not to drink again. This is repeated over and over, and unless this person can experience an entire psychic change there is very little hope of his recovery.
 
-  On the other hand—and strange as this may seem to those who do not understand—once a psychic change has occurred, the very same person who seemed doomed, who had so many problems he despaired of ever solving them, suddenly finds himself easily able to control his desire for alcohol, the only effort necessary being that required to follow a few simple rules.
+  On the other hand—and strange as this may seem to those who do not understand—once a psychic change has occurred, the very same person who seemed doomed, who had so many problems [they] despaired of ever solving them, suddenly finds [themselves] easily able to control [their] desire for alcohol, the only effort necessary being that required to follow a few simple rules.
 
-  Men have cried out to me in sincere and despairing appeal: “Doctor, I cannot go on like this! I have everything to live for! I must stop, but I cannot! You must help me!”
+  [People] have cried out to me in sincere and despairing appeal: “Doctor, I cannot go on like this! I have everything to live for! I must stop, but I cannot! You must help me!”
 
-  Faced with this problem, if a doctor is honest with himself, he must sometimes feel his own inadequacy. Although he gives all that is in him, it often is not enough. One feels that something more than human power is needed to produce the essential psychic change. Though the aggregate of recoveries resulting from psychiatric effort is considerable, we physicians must admit we have made little impression upon the problem as a whole. Many types do not respond to the ordinary psychological approach.
+  Faced with this problem, if a doctor is honest with [themselves], [they] must sometimes feel [their] own inadequacy. Although [they give] all that is in [them], it often is not enough. One feels that something more than human power is needed to produce the essential psychic change. Though the aggregate of recoveries resulting from psychiatric effort is considerable, we physicians must admit we have made little impression upon the problem as a whole. Many types do not respond to the ordinary psychological approach.
 
-  I do not hold with those who believe that alcoholism is entirely a problem of mental control. I have had many men who had, for example, worked a period of months on some problem or business deal which was to be settled on a certain date, favorably to them. They took a drink a day or so prior to the date, and then the phenomenon of craving at once became paramount to all other interests so that the
+  I do not hold with those who believe that alcoholism is entirely a problem of mental control. I have had many [people] who had, for example, worked a period of months on some problem or business deal which was to be settled on a certain date, favorably to them. They took a drink a day or so prior to the date, and then the phenomenon of craving at once became paramount to all other interests so that the
 
 PAGE xxx
 
-important appointment was not met. These men were not drinking to escape; they were drinking to overcome a craving beyond their mental control.
+important appointment was not met. These [people] were not drinking to escape; they were drinking to overcome a craving beyond their mental control.
 
-  There are many situations which arise out of the phenomenon of craving which cause men to make the supreme sacrifice rather than continue to fight.
+  There are many situations which arise out of the phenomenon of craving which cause [people] to make the supreme sacrifice rather than continue to fight.
 
   The classification of alcoholics seems most difficult, and in much detail is outside the scope of this book. There are, of course, the psychopaths who are emotionally unstable. We are all familiar with this type. They are always “going on the wagon for keeps.” They are over-remorseful and make many resolutions, but never a decision.
 
-  There is the type of man who is unwilling to admit that he cannot take a drink. He plans various ways of drinking. He changes his brand or his environment. There is the type who always believes that after being entirely free from alcohol for a period of time he can take a drink without danger. There is the manic-depressive type, who is, perhaps, the least understood by his friends, and about whom a whole chapter could be written.
+  There is the type of [person] who is unwilling to admit that [they] cannot take a drink. [They play] various ways of drinking. [They] changes [their] brand or his environment. There is the type who always believes that after being entirely free from alcohol for a period of time [they] can take a drink without danger. There is the manic-depressive type, who is, perhaps, the least understood by their friends, and about whom a whole chapter could be written.
 
   Then there are types entirely normal in every respect except in the effect alcohol has upon them. They are often able, intelligent, friendly people.
 
@@ -103,9 +103,9 @@ PAGE xxxi
 
 PAGE xxxii
 
-  However, he did become “sold” on the ideas contained in this book. He has not had a drink for a great many years. I see him now and then and he is as fine a specimen of manhood as one could wish to meet.
+  However, he did become “sold” on the ideas contained in this book. He has not had a drink for a great many years. I see him now and then and he is as fine a specimen of [humanity] as one could wish to meet.
 
-  I earnestly advise every alcoholic to read this book through, and though perhaps he came to scoff, he may remain to pray.
+  I earnestly advise every alcoholic to read this book through, and though perhaps [they] came to scoff, [they] may remain to pray.
 
 William D. Silkworth, M.D.
 

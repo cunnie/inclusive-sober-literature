@@ -14,7 +14,7 @@ Chapter                           Page
  5 How It Works                      58
  6 Into Action                       72
  7 Working with Others               89
- 8 To Wives                         104
+ 8 To Partners                      104
  9 The Family Afterward             122
 10 To Employers                     136
 11 A Vision for You                 151

@@ -10,7 +10,7 @@ SINCE this Step so specifically concerns itself with humility, we should pause h
 
   Humility, as a word and as an ideal, has a very bad time of it in our world. Not only is the idea misunderstood; the word itself is often intensely disliked. Many people haven’t even a nodding acquaintance with humility as a way of life. Much of the everyday talk we hear, and a great deal of what we read, highlights humankinds’s pride in their own achievements.
 
-  With great intelligence, scientists have been forcing nature to disclose her secrets. The immense resources now being harnessed promise such a quantity of material blessings that many have come to believe that a human-made millennium lies just ahead. Poverty will disappear, and there
+  With great intelligence, scientists have been forcing nature to disclose its secrets. The immense resources now being harnessed promise such a quantity of material blessings that many have come to believe that a human-made millennium lies just ahead. Poverty will disappear, and there
 
 PAGE 71
 

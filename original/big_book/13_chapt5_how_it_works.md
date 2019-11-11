@@ -1,12 +1,10 @@
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 58
+PAGE 58
 
-Chapter 5
+# Chapter 5
 
-HOW IT WORKS
+## HOW IT WORKS
 
-R
-
-arely have we seen a person fail who has
+Rarely have we seen a person fail who has
 thoroughly followed our path. Those who do not
 recover are people who cannot or will not completely
 give themselves to this simple program, usually men
@@ -31,11 +29,9 @@ be fearless and thorough from the very start. Some of
 us have tried to hold on to our old ideas and the result
 was nil until we let go absolutely.
 Remember that we deal with alcohol—cunning, baf­
-58
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 59
+PAGE 59
 
-59
 ﬂing, powerful! Without help it is too much for us.
 But there is One who has all power—that One is God.
 May you ﬁnd Him now!
@@ -68,12 +64,10 @@ we were wrong promptly admitted it.
 prove our conscious contact with God as we un­
 derstood Him, praying only for knowledge of
 His will for us and the power to carry that out.
-HOW IT WORKS
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 60
 
-60
-ALCOHOLICS ANONYMOUS
+
+PAGE 60
 12. Having had a spiritual awakening as the result
 of these steps, we tried to carry this message to
 alcoholics, and to practice these principles in all
@@ -107,9 +101,9 @@ son is like an actor who wants to run the whole show;
 is forever trying to arrange the lights, the ballet, the
 scenery and the rest of the players in his own way. If
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 61
 
-61
+
+PAGE 61
 his arrangements would only stay put, if only people
 would do as he wished, the show would be great.
 Everybody, including himself, would be pleased. Life
@@ -143,12 +137,10 @@ man who lolls in the Florida sunshine in the winter
 complaining of the sad state of the nation; the minister
 who sighs over the sins of the twentieth century; poli­
 ticians and reformers who are sure all would be Utopia
-HOW IT WORKS
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 62
 
-62
-ALCOHOLICS ANONYMOUS
+
+PAGE 62
 if the rest of the world would only behave; the outlaw
 safe cracker who thinks society has wronged him; and
 the alcoholic who has lost all and is locked up. What­
@@ -183,9 +175,9 @@ Most good ideas are simple, and this concept was the
 keystone of the new and triumphant arch through
 which we passed to freedom.
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 63
 
-63
+
+PAGE 63
 When we sincerely took such a position, all sorts of
 remarkable things followed. We had a new Employer.
 Being all powerful, He provided what we needed, if
@@ -219,12 +211,10 @@ humbly made, an effect, sometimes a very great one,
 was felt at once.
 Next we launched out on a course of vigorous action,
 the ﬁrst step of which is a personal housecleaning,
-HOW IT WORKS
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 64
 
-64
-ALCOHOLICS ANONYMOUS
+
+PAGE 64
 which many of us had never attempted. Though our
 decision was a vital and crucial step, it could have little
 permanent effect unless at once followed by a stren­
@@ -258,9 +248,9 @@ angry. We asked ourselves why we were angry. In
 most cases it was found that our self-esteem, our
 pocketbooks, our ambitions, our personal relationships
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 65
 
-65
+
+PAGE 65
 (including sex) were hurt or threatened. So we were
 sore. We were “burned up.’’
 On our grudge list we set opposite each name our
@@ -268,7 +258,6 @@ injuries. Was it our self-esteem, our security, our am­
 bitions, our personal, or sex relations, which had been
 interfered with?
 We were usually as deﬁnite as this example:
-HOW IT WORKS
 
 I’m resentful at:
 Mr. Brown
@@ -323,10 +312,9 @@ We went back through our lives. Nothing counted
 but thoroughness and honesty. When we were ﬁn­
 ished we considered it carefully. The ﬁrst thing ap­
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 66
 
-66
-ALCOHOLICS ANONYMOUS
+
+PAGE 66
 parent was that this world and its people were often
 quite wrong. To conclude that others were wrong was
 as far as most of us ever got. The usual outcome was
@@ -361,9 +349,9 @@ could not wish them away any more than alcohol.
 This was our course: We realized that the people
 who wronged us were perhaps spiritually sick.
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 67
 
-67
+
+PAGE 67
 Though we did not like their symptoms and the way
 these disturbed us, they, like ourselves, were sick too.
 We asked God to help us show them the same toler­
@@ -396,12 +384,10 @@ thread; the fabric of our existence was shot through
 with it. It set in motion trains of circumstances which
 brought us misfortune we felt we didn’t deserve. But
 did not we, ourselves, set the ball rolling? Sometimes
-HOW IT WORKS
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 68
 
-68
-ALCOHOLICS ANONYMOUS
+
+PAGE 68
 we think fear ought to be classed with stealing. It
 seems to cause more trouble.
 We reviewed our fears thoroughly. We put them on
@@ -435,9 +421,9 @@ we ﬁnd human opinions running to extremes—absurd
 extremes, perhaps. One set of voices cry that sex is a
 lust of our lower nature, a base necessity of procrea­
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 69
 
-69
+
+PAGE 69
 tion. Then we have the voices who cry for sex and
 more sex; who bewail the institution of marriage; who
 think that most of the troubles of the race are traceable
@@ -471,12 +457,10 @@ lem. In meditation, we ask God what we should do
 about each speciﬁc matter. The right answer will
 come, if we want it.
 God alone can judge our sex situation. Counsel with
-HOW IT WORKS
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 70
 
-70
-ALCOHOLICS ANONYMOUS
+
+PAGE 70
 persons is often desirable, but we let God be the ﬁnal
 judge. We realize that some people are as fanatical
 about sex as others are loose. We avoid hysterical
@@ -511,9 +495,9 @@ have hurt by our conduct, and are willing to straighten
 out the past if we can.
 In this book you read again and again that faith did
 
-Alco_1893007162_6p_01_r5.qxd 4/4/03 11:17 AM Page 71
 
-71
+
+PAGE 71
 for us what we could not do for ourselves. We hope
 you are convinced now that God can remove whatever
 self-will has blocked you off from Him. If you have
@@ -521,6 +505,4 @@ already made a decision, and an inventory of your
 grosser handicaps, you have made a good beginning.
 That being so you have swallowed and digested some
 big chunks of truth about yourself.
-HOW IT WORKS
 
-

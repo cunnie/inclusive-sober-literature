@@ -50,8 +50,6 @@ we often found ourselves handicapped by obstinacy, sensitiveness, and unreasonin
 
   The practical individual of today is a stickler for facts and results. Nevertheless, the twentieth century readily accepts theories of all kinds, provided they are firmly grounded in fact. We have numerous theories, for example, about electricity. Everybody believes them without a murmur of doubt. Why this ready acceptance? Simply because it is impossible to explain what we see, feel, direct, and use, without a reasonable assumption as a starting point.
 
-<!--remix bookmark; below is not yet remixed -->
-
   Everybody nowadays, believes in scores of assumptions for which there is good evidence, but no perfect visual proof. And does not science demonstrate that visual proof is the weakest proof? It is being constantly revealed, as mankind studies the material world, that outward appearances are not inward reality at all. To illustrate:
 
   The prosaic steel girder is a mass of electrons whirl-
@@ -66,27 +64,27 @@ PAGE 50
 
   Instead, we looked at the human defects of these people, and sometimes used their shortcomings as a basis of wholesale condemnation. We talked of intolerance, while we were intolerant ourselves. We missed the reality and the beauty of the forest because we were diverted by the ugliness of some of its trees. We never gave the spiritual side of life a fair hearing.
 
-  In our personal stories you will find a wide variation in the way each teller approaches and conceives of the Power which is greater than himself. Whether we agree with a particular approach or conception seems to make little difference. Experience has taught us that these are matters about which, for our purpose, we need not be worried. They are questions for each individual to settle for himself.
+  In our personal stories you will find a wide variation in the way each teller approaches and conceives of the Power which is greater than themselves. Whether we agree with a particular approach or conception seems to make little difference. Experience has taught us that these are matters about which, for our purpose, we need not be worried. They are questions for each individual to settle for themselves.
 
-  On one proposition, however, these men and women are strikingly agreed. Every one of them has gained access to, and believes in, a Power greater than himself. This Power has in each case accomplished the miraculous, the humanly impossible. As a celebrated American statesman put it, “Let’s look at the record.”
+  On one proposition, however, these people are strikingly agreed. Every one of them has gained access to, and believes in, a Power greater than themselves. This Power has in each case accomplished the miraculous, the humanly impossible. As a celebrated American statesman put it, “Let’s look at the record.”
 
-  Here are thousands of men and women, worldly indeed. They flatly declare that since they have come to believe in a Power greater than themselves, to take a certain attitude toward that Power, and to do certain simple things, there has been a revolutionary change in their way of living and thinking. In the face of collapse and despair, in the face of the total failure of their human resources, they found that a new power, peace, happiness, and sense of direction flowed into them. This happened soon after they wholeheartedly met a few simple requirements. Once con-
+  Here are thousands of people, worldly indeed. They flatly declare that since they have come to believe in a Power greater than themselves, to take a certain attitude toward that Power, and to do certain simple things, there has been a revolutionary change in their way of living and thinking. In the face of collapse and despair, in the face of the total failure of their human resources, they found that a new power, peace, happiness, and sense of direction flowed into them. This happened soon after they wholeheartedly met a few simple requirements. Once con-
 
 PAGE 51
 
 fused and baffled by the seeming futility of existence, they show the underlying reasons why they were making heavy going of life. Leaving aside the drink question, they tell why living was so unsatisfactory. They show how the change came over them. When many hundreds of people are able to say that the consciousness of the Presence of God is today the most important fact of their lives, they present a powerful reason why one should have faith.
 
-  This world of ours has made more material progress in the last century than in all the millenniums which went before. Almost everyone knows the reason. Students of ancient history tell us that the intellect of men in those days was equal to the best of today. Yet in ancient times material progress was painfully slow. The spirit of modern scientific inquiry, research and invention was almost unknown. In the realm of the material, men’s minds were fettered by superstition, tradition, and all sorts of fixed ideas. Some of the contemporaries of Columbus thought a round earth preposterous. Others came near putting Galileo to death for his astronomical heresies.
+  This world of ours has made more material progress in the last century than in all the millenniums which went before. Almost everyone knows the reason. Students of ancient history tell us that the intellect of humans in those days was equal to the best of today. Yet in ancient times material progress was painfully slow. The spirit of modern scientific inquiry, research and invention was almost unknown. In the realm of the material, people’s minds were fettered by superstition, tradition, and all sorts of fixed ideas. Some of the contemporaries of Columbus thought a round earth preposterous. Others came near putting Galileo to death for his astronomical heresies.
 
-  We asked ourselves this: Are not some of us just as biased and unreasonable about the realm of the spirit as were the ancients about the realm of the material? Even in the present century, American newspapers were afraid to print an account of the Wright brothers’ first successful flight at Kitty Hawk. Had not all efforts at flight failed before? Did not Professor Langley’s flying machine go to the bottom of the Potomac River? Was it not true that the best mathematical minds had proved man could never fly? Had not people said God had reserved this privilege to the
+  We asked ourselves this: Are not some of us just as biased and unreasonable about the realm of the spirit as were the ancients about the realm of the material? Even in the present century, American newspapers were afraid to print an account of the Wright brothers’ first successful flight at Kitty Hawk. Had not all efforts at flight failed before? Did not Professor Langley’s flying machine go to the bottom of the Potomac River? Was it not true that the best mathematical minds had proved we could never fly? Had not people said God had reserved this privilege to the
 
 PAGE 52
 
 birds? Only thirty years later the conquest of the air was almost an old story and airplane travel was in full swing.
 
-  But in most fields our generation has witnessed complete liberation of our thinking. Show any longshoreman a Sunday supplement describing a proposal to explore the moon by means of a rocket and he will say, “I bet they do it—maybe not so long either.” Is not our age characterized by the ease with which we discard old ideas for new, by the complete readiness with which we throw away the theory or gadget which does not work for something new which does?
+  But in most fields our generation has witnessed complete liberation of our thinking. Show any dock worker a Sunday supplement describing a proposal to explore the moon by means of a rocket and they will say, “I bet they do it—maybe not so long either.” Is not our age characterized by the ease with which we discard old ideas for new, by the complete readiness with which we throw away the theory or gadget which does not work for something new which does?
 
-  We had to ask ourselves why we shouldn’t apply to our human problems this same readiness to change our point of view. We were having trouble with personal relationships, we couldn’t control our emotional natures, we were a prey to misery and depression, we couldn’t make a living, we had a feeling of uselessness, we were full of fear, we were unhappy, we couldn’t seem to be of real help to other people— was not a basic solution of these bedevilments more important than whether we should see newsreels of lunar flight? Of course it was.
+  We had to ask ourselves why we shouldn’t apply to our human problems this same readiness to change our point of view. We were having trouble with personal relationships, we couldn’t control our emotional natures, we were a prey to misery and depression, we couldn’t make a living, we had a feeling of uselessness, we were full of fear, we were unhappy, we couldn’t seem to be of real help to other people—was not a basic solution of these bedevilments more important than whether we should see newsreels of lunar flight? Of course it was.
 
   When we saw others solve their problems by a simple reliance upon the Spirit of the Universe, we had to stop doubting the power of God. Our ideas did not work. But the God idea did.
 
@@ -116,13 +114,13 @@ we not believe in our own reasoning? Did we not have confidence in our ability t
 
 PAGE 55
 
-though it emanate from our best minds. What about people who proved that man could never fly?
+though it emanate from our best minds. What about people who proved that humans could never fly?
 
   Yet we had been seeing another kind of flight, a spiritual liberation from this world, people who rose above their problems. They said God made these things possible, and we only smiled. We had seen spiritual release, but liked to tell ourselves it wasn’t true.
 
-  Actually we were fooling ourselves, for deep down in every man, woman, and child, is the fundamental idea of God. It may be obscured by calamity, by pomp, by worship of other things, but in some form or other it is there. For faith in a Power greater than ourselves, and miraculous demonstrations of that power in human lives, are facts as old as man himself.
+  Actually we were fooling ourselves, for deep down in every adult and child, is the fundamental idea of God. It may be obscured by calamity, by pomp, by worship of other things, but in some form or other it is there. For faith in a Power greater than ourselves, and miraculous demonstrations of that power in human lives, are facts as old as humans themselves.
 
-  We finally saw that faith in some kind of God was a part of our make-up, just as much as the feeling we have for a friend. Sometimes we had to search fearlessly, but He was there. He was as much a fact as we were. We found the Great Reality deep down within us. In the last analysis it is only there that He may be found. It was so with us.
+  We finally saw that faith in some kind of God was a part of our make-up, just as much as the feeling we have for a friend. Sometimes we had to search fearlessly, but God was there. God was as much a fact as we were. We found the Great Reality deep down within us. In the last analysis it is only there that God may be found. It was so with us.
 
   We can only clear the ground a bit. If our testimony helps sweep away prejudice, enables you to think honestly, encourages you to search diligently within yourself, then, if you wish, you can join us on the Broad Highway. With this attitude you cannot fail. The consciousness of your belief is sure to come to you.
 
@@ -130,7 +128,7 @@ though it emanate from our best minds. What about people who proved that man cou
 
 PAGE 56
 
-  Our friend was a minister’s son. He attended church school, where he became rebellious at what he thought an overdose of religious education. For years thereafter he was dogged by trouble and frustration. Business failure, insanity, fatal illness, suicide— these calamities in his immediate family embittered and depressed him. Post-war disillusionment, ever more serious alcoholism, impending mental and physical collapse, brought him to the point of self-destruction.
+  Our friend was a minister’s son. He attended church school, where he became rebellious at what he thought an overdose of religious education. For years thereafter he was dogged by trouble and frustration. Business failure, insanity, fatal illness, suicide—these calamities in his immediate family embittered and depressed him. Post-war disillusionment, ever more serious alcoholism, impending mental and physical collapse, brought him to the point of self-destruction.
 
   One night, when confined in a hospital, he was approached by an alcoholic who had known a spiritual experience. Our friend’s gorge rose as he bitterly cried out: “If there is a God, He certainly hasn’t done anything for me!” But later, alone in his room, he asked himself this question: “Is it possible that all the religious people I have known are wrong?” While pondering the answer he felt as though he lived in hell. Then, like a thunderbolt, a great thought came. It crowded out all else:
 
@@ -144,9 +142,9 @@ PAGE 57
 
 appeared. Save for a few brief moments of temptation the thought of drink has never returned; and at such times a great revulsion has risen up in him. Seemingly he could not drink even if he would. God had restored his sanity.
 
-  What is this but a miracle of healing? Yet its elements are simple. Circumstances made him willing to believe. He humbly offered himself to his Maker— then he knew.
+  What is this but a miracle of healing? Yet its elements are simple. Circumstances made him willing to believe. He humbly offered himself to his Maker—then he knew.
 
-  Even so has God restored us all to our right minds. To this man, the revelation was sudden. Some of us grow into it more slowly. But He has come to all who have honestly sought Him.
+  Even so has God restored us all to our right minds. To this man, the revelation was sudden. Some of us grow into it more slowly. But God has come to all who have honestly sought God.
 
-  When we drew near to Him He disclosed Himself to us!
+  When we drew near to God, God disclosed God's-self to us!
 

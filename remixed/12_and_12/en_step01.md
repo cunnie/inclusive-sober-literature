@@ -10,7 +10,7 @@ WHO cares to admit complete defeat? Practically no one, of course. Every natural
 
   But upon entering A.A. we soon take quite another view of this absolute humiliation. We perceive that only through utter defeat are we able to take our first steps toward liberation and strength. Our admissions of personal powerlessness finally turn out to be firm bedrock upon which happy and purposeful lives may be built.
 
-  We know that little good can come to any alcoholic who joins A.A. unless they have first accepted their devastating weakness and all its consequences. Until they so humbles themselves, their sobriety—if any—will be precarious. Of real happiness they will find none at all. Proved beyond doubt by an immense experience, this is one of the facts of A.A. life.
+  We know that little good can come to any alcoholic who joins A.A. unless they have first accepted their devastating weakness and all its consequences. Until they so humble themselves, their sobriety—if any—will be precarious. Of real happiness they will find none at all. Proved beyond doubt by an immense experience, this is one of the facts of A.A. life.
 
 PAGE 22
 

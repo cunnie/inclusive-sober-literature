@@ -13,7 +13,7 @@ A VISION FOR YOU
 
 PAGE 152
 
-ers, we smile at such a sally. We know our friend is like a child whistling in the dark to keep up his spirits. They fools themselves. Inwardly they would give anything to take half a dozen drinks and get away with them. They will presently try the old game again, for they aren’t happy about their sobriety. They cannot picture life without alcohol. Some day they will be unable to imagine life either with alcohol or without it. Then they will know loneliness such as few do. They will be at the jumping-off place. They will wish for the end.
+ers, we smile at such a sally. We know our friend is like a child whistling in the dark to keep up their spirits. They fools themselves. Inwardly they would give anything to take half a dozen drinks and get away with them. They will presently try the old game again, for they aren’t happy about their sobriety. They cannot picture life without alcohol. Some day they will be unable to imagine life either with alcohol or without it. Then they will know loneliness such as few do. They will be at the jumping-off place. They will wish for the end.
 
   We have shown how we got out from under. You say, “Yes, I’m willing. But am I to be consigned to a life where I shall be stupid, boring and glum, like some righteous people I see? I know I must get along without liquor, but how can I? Have you a sufficient substitute?”
 
@@ -117,21 +117,21 @@ church. He suffered horribly from his sprees, but it seemed as if nothing could 
 
   All this time our friend of the hotel lobby incident remained in that town. He was there three months. He now returned home, leaving behind his first acquaintance, the lawyer and the devil-may-care chap. These men had found something brand new in life. Though they knew they must help other alcoholics if they would remain sober, that motive became secondary. It was transcended by the happiness they found in giving themselves for others. They shared their homes, their slender resources, and gladly devoted their spare hours to fellow-sufferers. They were willing, by day or night, to place a new man in the hospital and visit him afterward. They grew in numbers. They experienced a few distressing failures, but in those cases they made an effort to bring the man’s family into a spiritual way of living, thus relieving much worry and suffering.
 
-  A year and six months later these three had succeeded with seven more. Seeing much of each other, scarce an evening passed that someone’s home did not shelter a little gathering of men and women, happy in their release, and constantly thinking how they might present their discovery to some newcomer. In addition to these casual get-togethers, it became customary to set apart one night a week for a meeting to be at-
+  A year and six months later these three had succeeded with seven more. Seeing much of each other, scarce an evening passed that someone’s home did not shelter a little gathering of people, happy in their release, and constantly thinking how they might present their discovery to some newcomer. In addition to these casual get-togethers, it became customary to set apart one night a week for a meeting to be at-
 
 PAGE 160
 
 tended by anyone or everyone interested in a spiritual way of life. Aside from fellowship and sociability, the prime object was to provide a time and place where new people might bring their problems.
 
-  Outsiders became interested. One man and his wife placed their large home at the disposal of this strangely assorted crowd. This couple has since become so fascinated that they have dedicated their home to the work. Many a distracted wife has visited this house to find loving and understanding companionship among women who knew her problem, to hear from the lips of their husbands what had happened to them, to be advised how her own wayward mate might be hospitalized and approached when next he stumbled.
+  Outsiders became interested. One married couple placed their large home at the disposal of this strangely assorted crowd. This couple has since become so fascinated that they have dedicated their home to the work. Many a distracted partner of an alcoholic has visited this house to find loving and understanding companionship among other partners of alcoholics who knew their problem, to hear from the lips of their alcoholic partners what had happened to them, to be advised how their own wayward mate might be hospitalized and approached when next they stumbled.
 
-  Many a man, yet dazed from his hospital experience, has stepped over the threshold of that home into freedom. Many an alcoholic who entered there came away with an answer. He succumbed to that gay crowd inside, who laughed at their own misfortunes and understood his. Impressed by those who visited him at the hospital, he capitulated entirely when, later, in an upper room of this house, he heard the story of some man whose experience closely tallied with his own. The expression on the faces of the women, that indefinable something in the eyes of the men, the stimulating and electric atmosphere of the place, conspired to let him know that here was haven at last.
+  Many an alcholic, yet dazed from their hospital experience, has stepped over the threshold of that home into freedom. Many an alcoholic who entered there came away with an answer. They succumbed to that gay crowd inside, who laughed at their own misfortunes and understood the newcommer's. Impressed by those who visited them at the hospital, they capitulated entirely when, later, in an upper room of this house, they heard the story of some person whose experience closely tallied with their own. The expression on the faces of the partners, that indefinable something in the eyes of the alcoholics, the stimulating and electric atmosphere of the place, conspired to let them know that here was haven at last.
 
-  The very practical approach to his problems, the absence of intolerance of any kind, the informality, the genuine democracy, the uncanny understanding which these people had were irresistible. He and his
+  The very practical approach to theri problems, the absence of intolerance of any kind, the informality, the genuine democracy, the uncanny understanding which these people had were irresistible. They and their
 
 PAGE 161
 
-wife would leave elated by the thought of what they could now do for some stricken acquaintance and his family. They knew they had a host of new friends; it seemed they had known these strangers always. They had seen miracles, and one was to come to them. They had visioned the Great Reality—their loving and All Powerful Creator.
+partner would leave elated by the thought of what they could now do for some stricken acquaintance and their family. They knew they had a host of new friends; it seemed they had known these strangers always. They had seen miracles, and one was to come to them. They had visioned the Great Reality—their loving and All Powerful Creator.
 
   Now, this house will hardly accommodate its weekly visitors, for they number sixty or eighty as a rule. Alcoholics are being attracted from far and near. From surrounding towns, families drive long distances to be present. A community thirty miles away has fifteen fellows of Alcoholics Anonymous. Being a large place, we think that some day its Fellowship will number many hundreds.\*
 
@@ -168,7 +168,7 @@ one person with this book in your hand. We believe and hope it contains all you 
 
 PAGE 164
 
-selves, and have discovered the joy of helping others to face life again, there will be no stopping until everyone in that town has had his opportunity to recover—if they can and will.
+selves, and have discovered the joy of helping others to face life again, there will be no stopping until everyone in that town has had their opportunity to recover—if they can and will.
 
   Still you may say: “But I will not have the benefit of contact with you who write this book.” We cannot be sure. God will determine that, so you must remember that your real reliance is always upon God. God will show you how to create the fellowship you crave.\*
 

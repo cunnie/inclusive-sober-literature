@@ -32,7 +32,7 @@ PAGE 75
 
 that he will not try to change our plan. But we must not use this as a mere excuse to postpone.
 
-  When we decide who is to hear our story, we waste no time. We have a written inventory and we are prepared for a long talk. We explain to our partner what we are about to do and why we have to do it. He should realize that we are engaged upon a life-anddeath errand. Most people approached in this way will be glad to help; they will be honored by our confidence.
+  When we decide who is to hear our story, we waste no time. We have a written inventory and we are prepared for a long talk. We explain to our partner what we are about to do and why we have to do it. He should realize that we are engaged upon a life-and-death errand. Most people approached in this way will be glad to help; they will be honored by our confidence.
 
   We pocket our pride and go to it, illuminating every twist of character, every dark cranny of the past. Once we have taken this step, withholding nothing, we are delighted. We can look the world in the eye. We can be alone at perfect peace and ease. Our fears fall from us. We begin to feel the nearness of our Creator. We may have had certain spiritual beliefs, but now we begin to have a spiritual experience. The feeling that the drink problem has disappeared will often come strongly. We feel we are on the Broad Highway, walking hand in hand with the Spirit of the Universe.
 
@@ -124,7 +124,7 @@ word serenity and we will know peace. No matter how far down the scale we have g
 
   This thought brings us to Step Ten, which suggests we continue to take personal inventory and continue to set right any new mistakes as we go along. We vigorously commenced this way of living as we cleaned up the past. We have entered the world of the Spirit. Our next function is to grow in understanding and effectiveness. This is not an overnight matter. It should continue for our lifetime. Continue to watch for selfishness, dishonesty, resentment, and fear. When these crop up, we ask God at once to remove them. We discuss them with someone immediately and make amends quickly if we have harmed anyone. Then we resolutely turn our thoughts to someone we can help. Love and tolerance of others is our code.
 
-  And we have ceased fighting anything or anyone— even alcohol. For by this time sanity will have returned. We will seldom be interested in liquor. If tempted, we recoil from it as from a hot flame. We
+  And we have ceased fighting anything or anyone—even alcohol. For by this time sanity will have returned. We will seldom be interested in liquor. If tempted, we recoil from it as from a hot flame. We
 
 PAGE 85
 

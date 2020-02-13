@@ -56,5 +56,17 @@ So did a friend of mine who was a one-time vice-president of the American Atheis
 ## Using fellow and fellowship is OK
 While some dictionaries have archaic or obsolete definitions of fellow as masculine. However, ["fellow" itself is etymologically gender neutral]. In a survey of different online discussion boards, most people tend to agree that fellow in most modern usages is gender neutral. Lastly, in prior art, [Inclusive Big Book], is does not change instances of "fellow" and "fellows". There are some instances in the text here, that we have remixed "fellow" singular into "someone" or "person" when it seemed appropriate.
 
+## Avoid using "queer"
+In older AA literature, "queer" is used with its traditional meaning of "odd or strange." In today's English, "queer" is almost always used either (a) to mean someone who identifies outside of the hetero-normative or cis-gender-normative paradigms or (b) as a slur to refer to someone who is not straight or cis-gendered.
+
+To avoid confusion and also to avoid triggering folks who may have had "queer" used as a pejorative towards them, we opt to replace "queer" with a different descriptive adjective.
+
+### Old
+"Show them, from your own experience, how the queer mental condition surrounding that first drink prevents normal functioning of the will power."
+### New
+"Show them, from your own experience, how the distorted mental condition surrounding that first drink prevents normal functioning of the will power."
+
+
+
 ["fellow" itself is etymologically gender neutral]: https://www.etymonline.com/word/fellow
 [Inclusive Big Book]: https://www.queerit.co/big-book

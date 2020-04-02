@@ -12,7 +12,7 @@ AS we work the first nine Steps, we prepare ourselves for the adventure of a new
 
 PAGE 89
 
-need to wander morbidly around in the past. It requires an admission and correction of errors now. Our inventory enables us to settle with the past. When this is done, we are really able to leave it behind us. When our inventory is carefully taken, and we have made peace with ourselves, the conviction follows that tomorrow’s challenges can be met as they come.
+need to wander morbidly around in the past. It requires an admission and correction of errors _now_. Our inventory enables us to settle with the past. When this is done, we are really able to leave it behind us. When our inventory is carefully taken, and we have made peace with ourselves, the conviction follows that tomorrow’s challenges can be met as they come.
 
   Although all inventories are alike in principle, the time factor does distinguish one from another. There’s the spotcheck inventory, taken at any time of the day, whenever we find ourselves getting tangled up. There’s the one we take at day’s end, when we review the happenings of the hours just past. Here we cast up a balance sheet, crediting ourselves with things well done, and chalking up debits where due. Then there are those occasions when alone, or in the company of our sponsor or spiritual adviser, we make a careful review of our progress since the last time. Many A.A.’s go in for annual or semiannual housecleanings. Many of us also like the experience of an occasional retreat from the outside world where we can quiet down for an undisturbed day or so of self-overhaul and meditation.
 
@@ -24,7 +24,7 @@ make all the other hours of our day better and happier. And at length our invent
 
   Before we ask what a spot-check inventory is, let’s look at the kind of setting in which such an inventory can do its work.
 
-  It is a spiritual axiom that every time we are disturbed, no matter what the cause, there is something wrong with us. If somebody hurts us and we are sore, we are in the wrong also. But are there no exceptions to this rule? What about “justifiable” anger? If somebody cheats us, aren’t we entitled to be mad? Can’t we be properly angry with selfrighteous folk? For us of A.A. these are dangerous exceptions. We have found that justified anger ought to be left to those better qualified to handle it.
+  It is a spiritual axiom that every time we are disturbed, no matter what the cause, there is something wrong _with us_. If somebody hurts us and we are sore, we are in the wrong also. But are there no exceptions to this rule? What about “justifiable” anger? If somebody cheats us, aren’t we entitled to be mad? Can’t we be properly angry with selfrighteous folk? For us of A.A. these are dangerous exceptions. We have found that justified anger ought to be left to those better qualified to handle it.
 
   Few people have been more victimized by resentments than have we alcoholics. It mattered little whether our resentments were justified or not. A burst of temper could spoil a day, and a well-nursed grudge could make us miserably ineffective. Nor were we ever skillful in separating justified from unjustified anger. As we saw it, our wrath was always justified. Anger, that occasional luxury of more balanced people, could keep us on an emotional jag indefinitely. These emotional “dry benders” often led straight to the bottle. Other kinds of disturbances—jealousy, envy, self-pity, or hurt pride—did the same thing.
 
@@ -52,13 +52,13 @@ sonal triumphs more than we have loved them; we drank of success as of a wine wh
 
 PAGE 93
 
-idea that we can be possessively loving of a few, can ignore the many, and can continue to fear or hate anybody, has to be abandoned, if only a little at a time.
+idea that we can be possessively loving of a few, can ignore the many, and can continue to fear or hate _anybody_, has to be abandoned, if only a little at a time.
 
   We can try to stop making unreasonable demands upon those we love. We can show kindness where we had shown none. With those we dislike we can begin to practice justice and courtesy, perhaps going out of our way to understand and help them.
 
   Whenever we fail any of these people, we can promptly admit it—to ourselves always, and to them also, when the admission would be helpful. Courtesy, kindness, justice, and love are the keynotes by which we may come into harmony with practically anybody. When in doubt we can always pause, saying, “Not my will, but Thine, be done.” And we can often ask ourselves, “Am I doing to others as I would have them do to me—today?”
 
-  When evening comes, perhaps just before going to sleep, many of us draw up a balance sheet for the day. This is a good place to remember that inventory-taking is not always done in red ink. It’s a poor day indeed when we haven’t done something right. As a matter of fact, the waking hours are usually well filled with things that are constructive. Good intentions, good thoughts, and good acts are there for us to see. Even when we have tried hard and failed, we may chalk that up as one of the greatest credits of all. Under these conditions, the pains of failure are converted into assets. Out of them we receive the stimulation we need to go forward. Someone who knew what he was talking about once remarked that pain was the touchstone of all spiritual progress. How heartily we A.A.’s can agree with him, for
+  When evening comes, perhaps just before going to sleep, many of us draw up a balance sheet for the day. This is a good place to remember that inventory-taking is not always done in red ink. It’s a poor day indeed when we haven’t done _something_ right. As a matter of fact, the waking hours are usually well filled with things that are constructive. Good intentions, good thoughts, and good acts are there for us to see. Even when we have tried hard and failed, we may chalk that up as one of the greatest credits of all. Under these conditions, the pains of failure are converted into assets. Out of them we receive the stimulation we need to go forward. Someone who knew what he was talking about once remarked that pain was the touchstone of all spiritual progress. How heartily we A.A.’s can agree with him, for
 
 PAGE 94
 

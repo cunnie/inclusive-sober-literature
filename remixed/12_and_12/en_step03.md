@@ -19,7 +19,7 @@ Every person who has joined A.A. and intends to stick has, without realizing it,
 
   But suppose that instinct still cries out, as it certainly will,
 
-PAGE 36 
+PAGE 36
 
 “Yes, respecting alcohol, I guess I have to be dependent upon A.A., but in all other matters I must still maintain my independence. Nothing is going to turn me into a nonentity. If I keep on turning my life and my will over to the care of Something or Somebody else, what will become of me? I’ll look like the hole in the doughnut.” This, of course, is the process by which instinct and logic always seek to bolster egotism, and so frustrate spiritual development. The trouble is that this kind of thinking takes no real account of the facts. And the facts seem to be these: The more we become willing to depend upon a Higher Power, the more independent we actually are. Therefore dependence, as A.A. practices it, is really a means of gaining true independence of the spirit.
 

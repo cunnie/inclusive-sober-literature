@@ -4,7 +4,7 @@ Step Six
 ====================
 > “Were entirely ready to have God remove all these defects of character.”
 
-“THIS is the Step that separates the men from the boys.” So declares a well-loved clergyman who happens to be one of A.A.’s greatest friends. He goes on to explain that any person capable of enough willingness and honesty to try repeatedly Step Six on all his faults—without any reservations whatever—has indeed come a long way spiritually, and is therefore entitled to be called a man who is sincerely trying to grow in the image and likeness of his own Creator.
+“THIS is the Step that separates the men from the boys.” So declares a well-loved clergyman who happens to be one of A.A.’s greatest friends. He goes on to explain that any person capable of enough willingness and honesty to try repeatedly Step Six on all his faults—_without any reservations whatever_—has indeed come a long way spiritually, and is therefore entitled to be called a man who is sincerely trying to grow in the image and likeness of his own Creator.
 
   Of course, the often disputed question of whether God can—and will, under certain conditions—remove defects of character will be answered with a prompt affirmative by almost any A.A. member. To him, this proposition will be no theory at all; it will be just about the largest fact in his life. He will usually offer his proof in a statement like this:
 
@@ -34,13 +34,13 @@ PAGE 65
 
 PAGE 66
 
-with all the honesty that we can summon, is to try to have it. Even then the best of us will discover to our dismay that there is always a sticking point, a point at which we say, “No, I can’t give this up yet.” And we shall often tread on even more dangerous ground when we cry, “This I will never give up!” Such is the power of our instincts to overreach themselves. No matter how far we have progressed, desires will always be found which oppose the grace of God.
+with all the honesty that we can summon, is to _try_ to have it. Even then the best of us will discover to our dismay that there is always a sticking point, a point at which we say, “No, I can’t give this up yet.” And we shall often tread on even more dangerous ground when we cry, “This I will _never_ give up!” Such is the power of our instincts to overreach themselves. No matter how far we have progressed, desires will always be found which oppose the grace of God.
 
   Some who feel they have done well may dispute this, so let’s try to think it through a little further. Practically everybody wishes to be rid of his most glaring and destructive handicaps. No one wants to be so proud that he is scorned as a braggart, nor so greedy that he is labeled a thief. No one wants to be angry enough to murder, lustful enough to rape, gluttonous enough to ruin his health. No one wants to be agonized by the chronic pain of envy or to be paralyzed by sloth. Of course, most human beings don’t suffer these defects at these rock-bottom levels.
 
-  We who have escaped these extremes are apt to congratulate ourselves. Yet can we? After all, hasn’t it been selfinterest, pure and simple, that has enabled most of us to escape? Not much spiritual effort is involved in avoiding excesses which will bring us punishment anyway. But when we face up to the less violent aspects of these very same defects, then where do we stand?
+  We who have escaped these extremes are apt to congratulate ourselves. Yet can we? After all, hasn’t it been selfinterest, pure and simple, that has enabled most of us to escape? Not much spiritual effort is involved in avoiding excesses which will bring us punishment anyway. But when we face up to the less violent aspects of these very same defects, _then_ where do we stand?
 
-  What we must recognize now is that we exult in some of our defects. We really love them. Who, for example, doesn’t like to feel just a little superior to the next fellow, or even quite a lot superior? Isn’t it true that we like to let greed masquerade as ambition? To think of liking lust seems im-
+  What we must recognize now is that we exult in some of our defects. We really love them. Who, for example, doesn’t like to feel just a little superior to the next fellow, or even quite a lot superior? Isn’t it true that we like to let greed masquerade as ambition? To think of _liking_ lust seems im-
 
 PAGE 67
 
@@ -54,9 +54,9 @@ possible. But how many men and women speak love with their lips, and believe wha
 
 PAGE 68
 
-deed ready to have all such defects taken from them. But even these people, if they construct a list of still milder defects, will be obliged to admit that they prefer to hang on to some of them. Therefore, it seems plain that few of us can quickly or easily become ready to aim at spiritual and moral perfection; we want to settle for only as much perfection as will get us by in life, according, of course, to our various and sundry ideas of what will get us by. So the difference between “the boys and the men” is the difference between striving for a self-determined objective and for the perfect objective which is of God.
+deed ready to have all such defects taken from them. But even these people, if they construct a list of still milder defects, will be obliged to admit that they prefer to hang on to _some_ of them. Therefore, it seems plain that few of us can quickly or easily become ready to aim at spiritual and moral perfection; we want to settle for only as much perfection as will get us by in life, according, of course, to our various and sundry ideas of what will get us by. So the difference between “the boys and the men” is the difference between striving for a self-determined objective and for the perfect objective which is of God.
 
-  Many will at once ask, “How can we accept the entire implication of Step Six? Why—that is perfection!” This sounds like a hard question, but practically speaking, it isn’t. Only Step One, where we made the 100 percent admission we were powerless over alcohol, can be practiced with absolute perfection. The remaining eleven Steps state perfect ideals. They are goals toward which we look, and the measuring sticks by which we estimate our progress. Seen in this light, Step Six is still difficult, but not at all impossible. The only urgent thing is that we make a beginning, and keep trying.
+  Many will at once ask, “How _can_ we accept the entire implication of Step Six? Why—that is _perfection_!” This sounds like a hard question, but practically speaking, it isn’t. Only Step One, where we made the 100 percent admission we were powerless over alcohol, can be practiced with absolute perfection. The remaining eleven Steps state perfect ideals. They are goals toward which we look, and the measuring sticks by which we estimate our progress. Seen in this light, Step Six is still difficult, but not at all impossible. The only urgent thing is that we make a beginning, and keep trying.
 
   If we would gain any real advantage in the use of this Step on problems other than alcohol, we shall need to make a brand new venture into open-mindedness. We shall need to raise our eyes toward perfection, and be ready to walk in that direction. It will seldom matter how haltingly we walk. The only question will be “Are we ready?”
 
@@ -64,7 +64,7 @@ deed ready to have all such defects taken from them. But even these people, if t
 
 PAGE 69
 
-have drawn. Perhaps we shall be obliged in some cases still to say, “This I cannot give up yet…,” but we should not say to ourselves, “This I will never give up!”
+have drawn. Perhaps we shall be obliged in some cases still to say, “This I cannot give up yet…,” but we should not say to ourselves, “This I will _never_ give up!”
 
   Let’s dispose of what appears to be a hazardous open end we have left. It is suggested that we ought to become entirely willing to aim toward perfection. We note that some delay, however, might be pardoned. That word, in the mind of a rationalizing alcoholic, could certainly be given a long-term meaning. He could say, “How very easy! Sure, I’ll head toward perfection, but I’m certainly not going to hurry any. Maybe I can postpone dealing with some of my problems indefinitely.” Of course, this won’t do. Such a bluffing of oneself will have to go the way of many another pleasant rationalization. At the very least, we shall have to come to grips with some of our worst character defects and take action toward their removal as quickly as we can.
 

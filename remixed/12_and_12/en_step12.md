@@ -48,7 +48,7 @@ where we will seem to be temporarily off the beam. These will appear as big setb
 
   But in the longer run we clearly realize that these are only the pains of growing up, and nothing but good can come from them if we turn more and more to the entire Twelve Steps for the answers.
 
-  Now comes the biggest question yet. What about the practice of these principles in all our affairs? Can we love the whole pattern of living as eagerly as we do the small segment of it we discover when we try to help other alcoholics achieve sobriety? Can we bring the same spirit of
+  Now comes the biggest question yet. What about the practice of these principles in _all_ our affairs? Can we love the whole pattern of living as eagerly as we do the small segment of it we discover when we try to help other alcoholics achieve sobriety? Can we bring the same spirit of
 
 PAGE 112
 
@@ -62,7 +62,7 @@ love and tolerance into our sometimes deranged family lives that we bring to our
 
 PAGE 113
 
-later proves to be a far too easy and superficial point of view. We temporarily cease to grow because we feel satisfied that there is no need for all of A.A.’s Twelve Steps for us. We are doing fine on a few of them. Maybe we are doing fine on only two of them, the First Step and that part of the Twelfth where we “carry the message.” In A.A. slang, that blissful state is known as “two-stepping.” And it can go on for years.
+later proves to be a far too easy and superficial point of view. We temporarily cease to grow because we feel satisfied that there is no need for _all_ of A.A.’s Twelve Steps for us. We are doing fine on a few of them. Maybe we are doing fine on only two of them, the First Step and that part of the Twelfth where we “carry the message.” In A.A. slang, that blissful state is known as “two-stepping.” And it can go on for years.
 
   The best-intentioned of us can fall for the “two-step” illusion. Sooner or later the pink cloud stage wears off and things go disappointingly dull. We begin to think that A.A. doesn’t pay off after all. We become puzzled and discouraged.
 

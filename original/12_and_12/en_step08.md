@@ -20,7 +20,7 @@ then the great advantages of doing this will so quickly reveal themselves that t
 
 PAGE 79
 
-human being. But the prospect of actually visiting or even writing the people concerned now overwhelmed us, especially when we remembered in what poor favor we stood with most of them. There were cases, too, where we had damaged others who were still happily unaware of being hurt. Why, we cried, shouldn’t bygones be bygones? Why do we have to think of these people at all? These were some of the ways in which fear conspired with pride to hinder our making a list of all the people we had harmed.
+human being. But the prospect of actually visiting or even writing the people concerned now overwhelmed us, especially when we remembered in what poor favor we stood with most of them. There were cases, too, where we had damaged others who were still happily unaware of being hurt. Why, we cried, shouldn’t bygones be bygones? Why do we have to think of these people at all? These were some of the ways in which fear conspired with pride to hinder our making a list of _all_ the people we had harmed.
 
   Some of us, though, tripped over a very different snag. We clung to the claim that when drinking we never hurt anybody but ourselves. Our families didn’t suffer, because we always paid the bills and seldom drank at home. Our business associates didn’t suffer, because we were usually on the job. Our reputations hadn’t suffered, because we were certain few knew of our drinking. Those who did would sometimes assure us that, after all, a lively bender was only a good man’s fault. What real harm, therefore, had we done? No more, surely, than we could easily mend with a few casual apologies.
 
@@ -44,7 +44,7 @@ PAGE 81
 
 PAGE 82
 
-things we have done, meanwhile forgiving the wrongs done us, real or fancied. We should avoid extreme judgments, both of ourselves and of others involved. We must not exaggerate our defects or theirs. A quiet, objective view will be our steadfast aim.
+things _we_ have done, meanwhile forgiving the wrongs done us, real or fancied. We should avoid extreme judgments, both of ourselves and of others involved. We must not exaggerate our defects or theirs. A quiet, objective view will be our steadfast aim.
 
   Whenever our pencil falters, we can fortify and cheer ourselves by remembering what A.A. experience in this Step has meant to others. It is the beginning of the end of isolation from our fellows and from God.
 

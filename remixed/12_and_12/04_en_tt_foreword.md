@@ -54,3 +54,5 @@ Grand Central Station, New York, NY 10163. U.S.A.)
 
 \* In 2012, A.A. is established in approximately 170 countries.
 
+PAGE 19
+PAGE 20

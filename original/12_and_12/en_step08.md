@@ -47,4 +47,4 @@ PAGE 82
 things _we_ have done, meanwhile forgiving the wrongs done us, real or fancied. We should avoid extreme judgments, both of ourselves and of others involved. We must not exaggerate our defects or theirs. A quiet, objective view will be our steadfast aim.
 
   Whenever our pencil falters, we can fortify and cheer ourselves by remembering what A.A. experience in this Step has meant to others. It is the beginning of the end of isolation from our fellows and from God.
-
+

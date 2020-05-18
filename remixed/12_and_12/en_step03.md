@@ -2,7 +2,7 @@ PAGE 34
 
 Step Three
 ====================
-> “Made a decision to turn our will and our lives over to the care of God as we understood God.”
+> “Made a decision to turn our will and our lives over to the care of God _as we understood God_.”
 
 PRACTICING Step Three is like the opening of a door which to all appearances is still closed and locked. All we need is a key, and the decision to swing the door open. There is only one key, and it is called willingness. Once unlocked by willingness, the door opens almost of itself, and looking through it, we shall see a pathway beside which is an inscription. It reads: “This is the way to a faith that works.” In the first two Steps we were engaged in reflection. We saw that we were powerless over alcohol, but we also perceived that faith of some kind, if only in A.A. itself, is possible to anyone. These conclusions did not require action; they required only acceptance.
 

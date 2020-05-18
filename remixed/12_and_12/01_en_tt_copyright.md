@@ -21,6 +21,6 @@ Printed in the United States of America**
 
 This remix of the book _Twelve Steps and Twelve Traditions_ was produced _without_ permission and is not approved by the A.A. General Service Conference.
 
-Remixed 2020 by Tom Dunlap and others.
+Remixed 2020 by Their Sober Press.
 
 Lovingly compiled in Cananda.

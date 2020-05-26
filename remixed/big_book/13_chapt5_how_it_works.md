@@ -20,7 +20,7 @@ fling, powerful! Without help it is too much for us. But there is One who has al
 
   Here are the steps we took, which are suggested as a program of recovery:
 
-1. We admitted we were powerless over alcohol— that our lives had become unmanageable.
+1. We admitted we were powerless over alcohol—that our lives had become unmanageable.
 
 2. Came to believe that a Power greater than ourselves could restore us to sanity.
 

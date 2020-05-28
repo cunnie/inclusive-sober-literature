@@ -1,5 +1,7 @@
 ## Gender of God 
 Avoid using any pronouns when referencing God.
+
+For any given alcoholic God may be a: he, she, it, they, etc. When we say "God as we understand Him," we are implicitly saying that any concept of God is fine, so long as it's a man. Other remixes have replaced "God as we understood Him" with "our Higher Power as we understood it." While we agree that this is an inclusive remixing of the text, we found it to be too distracting when being read alongside a non-remixed text and found that replacing "Him" with "God" to flow more naturally. Moreover, we had noticed that some members of AA already did this when reading "How It Works" at the beginning of an AA meeting.
 ### Old
 > God as we understood Him 
 ### New

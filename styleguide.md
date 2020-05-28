@@ -2,45 +2,48 @@
 Avoid using any pronouns when referencing God.
 
 For any given alcoholic God may be a: he, she, it, they, etc. When we say "God as we understand Him," we are implicitly saying that any concept of God is fine, so long as it's a man. Other remixes have replaced "God as we understood Him" with "our Higher Power as we understood it." While we agree that this is an inclusive remixing of the text, we found it to be too distracting when being read alongside a non-remixed text and found that replacing "Him" with "God" to flow more naturally. Moreover, we had noticed that some members of AA already did this when reading "How It Works" at the beginning of an AA meeting.
-### Old
+### Original
 > God as we understood Him 
-### New
+### Remixed 
 > God as we understood God 
 
-## Opting for singular they
-Replace gendered pronouns with singular they. Try to establish singular they by having a clear singular subject antecedent. When there are multiple "they" pronouns in a sentence, make sure that each usage of "they" has its antecedent appear before any other "they" pronouns that refer to different antecedents. Otherwise restate the antecedent.
+## Singular they
+Replace gendered pronouns with singular they.
 
-### Old
+Try to establish singular they by having a clear singular subject antecedent. When there are multiple "they" pronouns in a sentence, make sure that each usage of "they" has its antecedent appear before any other "they" pronouns that refer to different antecedents. Otherwise restate the antecedent.
+
+### Original
 > No matter how much one wishes to try, exactly how can he turn his own will and his own life over to the care of whatever God he thinks there is?
-### New
+### Remixed
 > No matter how much one wishes to try, exactly how can they turn their own will and their own life over to the care of whatever God they think there is?
-### Old
-They simply will not budge; they make him desperately unhappy and threaten his newfound sobriety.
-### New
-Their problems simply will not budge; they make the alcoholic desperately unhappy and threaten their newfound sobriety.
+### Original
+> They simply will not budge; they make him desperately unhappy and threaten his newfound sobriety.
+### Remixed
+> Their problems simply will not budge; they make the alcoholic desperately unhappy and threaten their newfound sobriety.
 
 ## Using person instead of "man"
-### Old
+Favour using "person" or "people" over "man" or "men"
+### Original
 This brave philosophy, wherein each man plays God, sounds good in the speaking, but it still has to meet the acid test: how well does it actually work?
-### New
+### Remixed
 This brave philosophy, wherein each person plays God, sounds good in the speaking, but it still has to meet the acid test: how well does it actually work?
 
 ## Avoid using "man and woman"
 While these uses are trying to be more inclusive, they still exclude non-binary individuals. Replace "man and woman" with something like "person".
-### Old
+### Original
 Every man and woman who has joined A.A. and intends to stick has, without realizing it, made a beginning on Step Three.
-### New
+### Remixed
 Every person who has joined A.A. and intends to stick has, without realizing it, made a beginning on Step Three.
-### Old
+### Original
 No adult man or woman, for example, should be in too much emotional dependence upon a parent.
-### New
+### Remixed
 No adult, for example, should be in too much emotional dependence upon a parent.
 
 ## Avoid words that assume a group of people are all male
 E.g.: brotherhood and mankind
-### Old
+### Original
 The sum of all this mighty effort is less peace and less brotherhood than before.
-### New
+### Remixed
 The sum of all this mighty effort is less peace and less kinship than before.
 
 ## Use "parent" instead of "mother" or "father"
@@ -50,9 +53,9 @@ The sum of all this mighty effort is less peace and less kinship than before.
 So did a friend of mine who was a one-time vice-president of the American Atheist Society, but he got through with room to spare.”
 
 ## Improve gendered language in quotes using brackets
-### Old
+### Original
 “THIS is the Step that separates the men from the boys.” So declares a well-loved clergyman who happens to be one of A.A.’s greatest friends.
-### New
+### Remixed
 “THIS is the Step that separates the [adults] from the [children].” So declares a well-loved clergyperson who happens to be one of A.A.’s greatest friends.
 
 ## Using fellow and fellowship is OK
@@ -63,9 +66,9 @@ In older AA literature, "queer" is used with its traditional meaning of "odd or 
 
 To avoid confusion and also to avoid triggering folks who may have had "queer" used as a pejorative towards them, we opt to replace "queer" with a different descriptive adjective.
 
-### Old
+### Original
 "Show them, from your own experience, how the queer mental condition surrounding that first drink prevents normal functioning of the will power."
-### New
+### Remixed
 "Show them, from your own experience, how the distorted mental condition surrounding that first drink prevents normal functioning of the will power."
 
 

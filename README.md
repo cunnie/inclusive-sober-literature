@@ -1,3 +1,5 @@
+# Inclusive Sober Literature
+
 Their Sober Press is an anonymous fellowship of alcoholics with support from non-alcoholics who "remix" sober literature to make them more inclusive for people of all genders, sexual orientations, and religious beliefs. It is our sincere hope that these small changes help make 12 step programs accessible to people who formerly felt unwelcome due to exclusionary language in the central texts. Our work is not authorized by the AA General Service Board, AA World Service Board, or any related organization.
 
 We are not for profit and do not accept any donations. If any of the literature here has helped you get and stay sober, please contribute to a local twelve step group.

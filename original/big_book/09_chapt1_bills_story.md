@@ -97,7 +97,7 @@ pride. I, who had thought so well of myself and my abilities, of my capacity to 
 
 PAGE 9
 
-come over. He was sober. It was years since I could remember his coming to New York in that condition. I was amazed. Rumor had it that he had been committed for alcoholic insanity. I wondered how he had escaped. Of course he would have dinner, and then I could drink openly with him. Unmindful of his welfare, I thought only of recapturing the spirit of other days. There was that time we had chartered an airplane to complete a jag! His coming was an oasis in this dreary desert of futility. The very thing—an oasis! Drinkers are like that.
+come over. _He was sober._ It was years since I could remember his coming to New York in that condition. I was amazed. Rumor had it that he had been committed for alcoholic insanity. I wondered how he had escaped. Of course he would have dinner, and then I could drink openly with him. Unmindful of his welfare, I thought only of recapturing the spirit of other days. There was that time we had chartered an airplane to complete a jag! His coming was an oasis in this dreary desert of futility. The very thing—an oasis! Drinkers are like that.
 
   The door opened and he stood there, fresh-skinned and glowing. There was something about his eyes. He was inexplicably different. What had happened?
 
@@ -145,11 +145,11 @@ reorganized. He was on a different footing. His roots grasped a new soil.
 
   Despite the living example of my friend there remained in me the vestiges of my old prejudice. The word God still aroused a certain antipathy. When the thought was expressed that there might be a God personal to me this feeling was intensified. I didn’t like the idea. I could go for such conceptions as Creative Intelligence, Universal Mind or Spirit of Nature but I resisted the thought of a Czar of the Heavens, however loving His sway might be. I have since talked with scores of men who felt the same way.
 
-  My friend suggested what then seemed a novel idea. He said, “Why don’t you choose your own conception of God?”
+  My friend suggested what then seemed a novel idea. He said, _“Why don’t you choose your own conception of God?”_
 
   That statement hit me hard. It melted the icy intellectual mountain in whose shadow I had lived and shivered many years. I stood in the sunlight at last.
 
-  It was only a matter of being willing to believe in a Power greater than myself. Nothing more was required of me to make my beginning. I saw that growth could start from that point. Upon a foundation of complete willingness I might build what I saw in my friend. Would I have it? Of course I would!
+  _It was only a matter of being willing to believe in a Power greater than myself. Nothing more was required of me to make my beginning._ I saw that growth could start from that point. Upon a foundation of complete willingness I might build what I saw in my friend. Would I have it? Of course I would!
 
   Thus was I convinced that God is concerned with us humans when we want Him enough. At long last I saw, I felt, I believed. Scales of pride and prejudice fell from my eyes. A new world came into view.
 

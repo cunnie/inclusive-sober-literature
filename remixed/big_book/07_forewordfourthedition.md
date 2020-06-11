@@ -8,7 +8,7 @@ This fourth edition of “Alcoholics Anonymous” came off press in November 200
 
   As the message of recovery has reached larger numbers of people, it has also touched the lives of a vastly greater variety of suffering alcoholics. When the phrase “We are people who normally would not mix” (page 17 of this book) was written in 1939, it referred to a Fellowship composed largely of men (and a few women) with quite similar social, ethnic, and economic backgrounds. Like so much of A.A.’s basic text, those words have proved to be far more visionary than the founding members could ever have imagined. The stories added to this edition represent a membership whose characteristics—of age, gender, race, and culture—have widened and have deepened to encompass
 
-\*In 2013, Alcoholics Anonymous is in seventy languages.
+\*In 2013, _Alcoholics Anonymous_ is in seventy languages.
 
 PAGE xxiv
 

@@ -18,7 +18,7 @@ PAGE 18
 
   Highly competent psychiatrists who have dealt with us have found it sometimes impossible to persuade an alcoholic to discuss their situation without reserve. Strangely enough, partners, parents and intimate friends usually find us even more unapproachable than do the psychiatrist and the doctor.
 
-  But the ex-problem drinker who has found this solution, who is properly armed with facts about themselves, can generally win the entire confidence of another alcoholic in a few hours. Until such an understanding is reached, little or nothing can be accomplished.
+  _But the ex-problem drinker who has found this solution, who is properly armed with facts about themselves, can generally win the entire confidence of another alcoholic in a few hours. Until such an understanding is reached, little or nothing can be accomplished._
 
   That the alcoholic who is making the approach has had the same difficulty, that they obviously knows what they are talking about, that their whole deportment shouts at the new prospect that they are someone with a real answer, that they have no attitude of Holier Than Thou, nothing whatever except the sincere desire to be helpful; that there are no fees to pay, no axes to grind, no people to please, no lectures to be endured—these are the condi-
 
@@ -86,7 +86,7 @@ PAGE 24
 
 control. At a certain point in the drinking of every alcoholic, they pass into a state where the most powerful desire to stop drinking is of absolutely no avail. This tragic situation has already arrived in practically every case long before it is suspected.
 
-  The fact is that most alcoholics, for reasons yet obscure, have lost the power of choice in drink. Our so-called will power becomes practically nonexistent. We are unable, at certain times, to bring into our consciousness with sufficient force the memory of the suffering and humiliation of even a week or a month ago. We are without defense against the first drink.
+  _The fact is that most alcoholics, for reasons yet obscure, have lost the power of choice in drink. Our so-called will power becomes practically nonexistent. We are unable, at certain times, to bring into our consciousness with sufficient force the memory of the suffering and humiliation of even a week or a month ago. We are without defense against the first drink._
 
   The almost certain consequences that follow taking even a glass of beer do not crowd into the mind to deter us. If these thoughts occur, they are hazy and readily supplanted with the old threadbare idea that this time we shall handle ourselves like other people. There is a complete failure of the kind of defense that keeps one from putting their hand on a hot stove.
 
@@ -98,7 +98,7 @@ PAGE 25
 
 holics throughout history. But for the grace of God, there would have been thousands more convincing demonstrations. So many want to stop but cannot.
 
-  There is a solution. Almost none of us liked the selfsearching, the leveling of our pride, the confession of shortcomings which the process requires for its successful consummation. But we saw that it really worked in others, and we had come to believe in the hopelessness and futility of life as we had been living it. When, therefore, we were approached by those in whom the problem had been solved, there was nothing left for us but to pick up the simple kit of spiritual tools laid at our feet. We have found much of heaven and we have been rocketed into a fourth dimension of existence of which we had not even dreamed.
+  _There is a solution._ Almost none of us liked the selfsearching, the leveling of our pride, the confession of shortcomings which the process requires for its successful consummation. But we saw that it really worked in others, and we had come to believe in the hopelessness and futility of life as we had been living it. When, therefore, we were approached by those in whom the problem had been solved, there was nothing left for us but to pick up the simple kit of spiritual tools laid at our feet. We have found much of heaven and we have been rocketed into a fourth dimension of existence of which we had not even dreamed.
 
   The great fact is just this, and nothing less: That we have had deep and effective spiritual experiences\* which have revolutionized our whole attitude toward life, toward our fellows and toward God’s universe. The central fact of our lives today is the absolute certainty that our Creator has entered into our hearts and lives in a way which is indeed miraculous. God has commenced to accomplish those things for us which we could never do by ourselves.
 

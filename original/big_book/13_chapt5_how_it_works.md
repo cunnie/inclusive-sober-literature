@@ -40,7 +40,7 @@ fling, powerful! Without help it is too much for us. But there is One who has al
 
 10. Continued to take personal inventory and when we were wrong promptly admitted it.
 
-11. Sought through prayer and meditation to improve our conscious contact with God _as we understood Him_, praying only for knowledge of His will for us and the power to carry that out.
+11. Sought through prayer and meditation to improve our conscious contact with God _as we understood Him,_ praying only for knowledge of His will for us and the power to carry that out.
 
 PAGE 60
 

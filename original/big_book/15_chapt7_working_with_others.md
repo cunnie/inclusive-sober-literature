@@ -14,7 +14,7 @@ PAGE 90
 
   When you discover a prospect for Alcoholics Anonymous, find out all you can about him. If he does not want to stop drinking, don’t waste time trying to persuade him. You may spoil a later opportunity. This advice is given for his family also. They should be patient, realizing they are dealing with a sick person.
 
-  If there is any indication that he wants to stop, have a good talk with the person most interested in him— usually his wife. Get an idea of his behavior, his problems, his background, the seriousness of his condition, and his religious leanings. You need this information to put yourself in his place, to see how you would like him to approach you if the tables were turned.
+  If there is any indication that he wants to stop, have a good talk with the person most interested in him—usually his wife. Get an idea of his behavior, his problems, his background, the seriousness of his condition, and his religious leanings. You need this information to put yourself in his place, to see how you would like him to approach you if the tables were turned.
 
   Sometimes it is wise to wait till he goes on a binge. The family may object to this, but unless he is in a dangerous physical condition, it is better to risk it. Don’t deal with him when he is very drunk, unless he is ugly and the family needs your help. Wait for the end of the spree, or at least for a lucid interval. Then let his family or a friend ask him if he wants to quit for good and if he would go to any extreme to do so. If he says yes, then his attention should be drawn to you as a person who has recovered. You should be described to him as one of a fellowship who, as part of their own recovery, try to help others and who will be glad to talk to him if he cares to see you.
 
@@ -150,6 +150,4 @@ tion. We feel that each family, in the light of their own circumstances, ought t
 
   Some day we hope that Alcoholics Anonymous will help the public to a better realization of the gravity of the alcoholic problem, but we shall be of little use if our attitude is one of bitterness or hostility. Drinkers will not stand for it.
 
-  _After all, our problems were of our own making.
-Bottles were only a symbol. Besides, we have stopped
-fighting anybody or anything. We have to!_
+  _After all, our problems were of our own making. Bottles were only a symbol. Besides, we have stopped fighting anybody or anything. We have to!_

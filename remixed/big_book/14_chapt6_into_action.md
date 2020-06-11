@@ -4,13 +4,13 @@ PAGE 72
 
 ## INTO ACTION
 
-  Having made our personal inventory, what shall we do about it? We have been trying to get a new attitude, a new relationship with our Creator, and to discover the obstacles in our path. We have admitted certain defects; we have ascertained in a rough way what the trouble is; we have put our finger on the weak items in our personal inventory. Now these are about to be cast out. This requires action on our part, which, when completed, will mean that we have admitted to God, to ourselves, and to another human being, the exact nature of our defects. This brings us to the Fifth Step in the program of recovery mentioned in the preceding chapter.
+  Having made our personal inventory, what shall we do about it? We have been trying to get a new attitude, a new relationship with our Creator, and to discover the obstacles in our path. We have admitted certain defects; we have ascertained in a rough way what the trouble is; we have put our finger on the weak items in our personal inventory. Now these are about to be cast out. This requires action on our part, which, when completed, will mean that we have admitted to God, to ourselves, and to another human being, the exact nature of our defects. This brings us to _the Fifth Step_ in the program of recovery mentioned in the preceding chapter.
 
   This is perhaps difficult—especially discussing our defects with another person. We think we have done well enough in admitting these things to ourselves. There is doubt about that. In actual practice, we usually find a solitary self-appraisal insufficient. Many of us thought it necessary to go much further. We will be more reconciled to discussing ourselves with another person when we see good reasons why we should do so. The best reason first: If we skip this vital step, we may not overcome drinking. Time after time newcomers have tried to keep to themselves certain facts about their lives. Trying to avoid this humbling experience, they have turned to easier methods. Almost
 
 PAGE 73
 
-invariably they got drunk. Having persevered with the rest of the program, they wondered why they fell. We think the reason is that they never completed their housecleaning. They took inventory all right, but hung on to some of the worst items in stock. They only thought they had lost their egoism and fear; they only thought they had humbled themselves. But they had not learned enough of humility, fearlessness and honesty, in the sense we find it necessary, until they told someone else all their life story.
+invariably they got drunk. Having persevered with the rest of the program, they wondered why they fell. We think the reason is that they never completed their housecleaning. They took inventory all right, but hung on to some of the worst items in stock. They only _thought_ they had lost their egoism and fear; they only _thought_ they had humbled themselves. But they had not learned enough of humility, fearlessness and honesty, in the sense we find it necessary, until they told someone else _all_ their life story.
 
   More than most people, the alcoholic leads a double life. They are very much the actor. To the outer world they present their stage character. This is the one they like their fellows to see. They want to enjoy a certain reputation, but knows in their heart they don’t deserve it.
 
@@ -40,11 +40,11 @@ that they will not try to change our plan. But we must not use this as a mere ex
 
 PAGE 76
 
-  If we can answer to our satisfaction, we then look at Step Six. We have emphasized willingness as being indispensable. Are we now ready to let God remove from us all the things which we have admitted are objectionable? Can God now take them all—every one? If we still cling to something we will not let go, we ask God to help us be willing.
+  If we can answer to our satisfaction, we then look at _Step Six._ We have emphasized willingness as being indispensable. Are we now ready to let God remove from us all the things which we have admitted are objectionable? Can God now take them all—every one? If we still cling to something we will not let go, we ask God to help us be willing.
 
-  When ready, we say something like this: “My Creator, I am now willing that you should have all of me, good and bad. I pray that you now remove from me every single defect of character which stands in the way of my usefulness to you and my fellows. Grant me strength, as I go out from here, to do your bidding. Amen.” We have then completed Step Seven.
+  When ready, we say something like this: “My Creator, I am now willing that you should have all of me, good and bad. I pray that you now remove from me every single defect of character which stands in the way of my usefulness to you and my fellows. Grant me strength, as I go out from here, to do your bidding. Amen.” We have then completed _Step Seven._
 
-Now we need more action, without which we find that “Faith without works is dead.” Let’s look at Steps Eight and Nine. We have a list of all persons we have harmed and to whom we are willing to make amends. We made it when we took inventory. We subjected ourselves to a drastic self-appraisal. Now we go out to our fellows and repair the damage done in the past. We attempt to sweep away the debris which has accumulated out of our effort to live on self-will and run the show ourselves. If we haven’t the will to do this, we ask until it comes. Remember it was agreed at the beginning we would go to any lengths for victory over alcohol.
+Now we need more action, without which we find that “Faith without works is dead.” Let’s look at _Steps Eight and Nine._ We have a list of all persons we have harmed and to whom we are willing to make amends. We made it when we took inventory. We subjected ourselves to a drastic self-appraisal. Now we go out to our fellows and repair the damage done in the past. We attempt to sweep away the debris which has accumulated out of our effort to live on self-will and run the show ourselves. If we haven’t the will to do this, we ask until it comes. Remember it was agreed at the beginning _we would go to any lengths for victory over alcohol._
 
   Probably there are still some misgivings. As we look over the list of business acquaintances and friends we have hurt, we may feel diffident about going to some of them on a spiritual basis. Let us be reassured. To some people we need not, and probably should not emphasize the spiritual feature on our first approach.
 
@@ -110,7 +110,7 @@ PAGE 83
 
   Yes, there is a long period of reconstruction ahead. We must take the lead. A remorseful mumbling that we are sorry won’t fill the bill at all. We ought to sit down with the family and frankly analyze the past as we now see it, being very careful not to criticize them. Their defects may be glaring, but the chances are that our own actions are partly responsible. So we clean house with the family, asking each morning in meditation that our Creator show us the way of patience, tolerance, kindliness and love.
 
-  The spiritual life is not a theory. We have to live it. Unless one’s family expresses a desire to live upon spiritual principles we think we ought not to urge them. We should not talk incessantly to them about spiritual matters. They will change in time. Our behavior will convince them more than our words. We must remember that ten or twenty years of drunkenness would make a skeptic out of anyone.
+  The spiritual life is not a theory. _We have to live it._ Unless one’s family expresses a desire to live upon spiritual principles we think we ought not to urge them. We should not talk incessantly to them about spiritual matters. They will change in time. Our behavior will convince them more than our words. We must remember that ten or twenty years of drunkenness would make a skeptic out of anyone.
 
   There may be some wrongs we can never fully right. We don’t worry about them if we can honestly say to ourselves that we would right them if we could. Some people cannot be seen—we send them an honest letter. And there may be a valid reason for postponement in some cases. But we don’t delay if it can be avoided. We should be sensible, tactful, considerate and humble without being servile or scraping. As God’s people we stand on our feet; we don’t crawl before anyone.
 
@@ -122,7 +122,7 @@ word serenity and we will know peace. No matter how far down the scale we have g
 
   Are these extravagant promises? We think not. They are being fulfilled among us—sometimes quickly, sometimes slowly. They will always materialize if we work for them.
 
-  This thought brings us to Step Ten, which suggests we continue to take personal inventory and continue to set right any new mistakes as we go along. We vigorously commenced this way of living as we cleaned up the past. We have entered the world of the Spirit. Our next function is to grow in understanding and effectiveness. This is not an overnight matter. It should continue for our lifetime. Continue to watch for selfishness, dishonesty, resentment, and fear. When these crop up, we ask God at once to remove them. We discuss them with someone immediately and make amends quickly if we have harmed anyone. Then we resolutely turn our thoughts to someone we can help. Love and tolerance of others is our code.
+  This thought brings us to _Step Ten,_ which suggests we continue to take personal inventory and continue to set right any new mistakes as we go along. We vigorously commenced this way of living as we cleaned up the past. We have entered the world of the Spirit. Our next function is to grow in understanding and effectiveness. This is not an overnight matter. It should continue for our lifetime. Continue to watch for selfishness, dishonesty, resentment, and fear. When these crop up, we ask God at once to remove them. We discuss them with someone immediately and make amends quickly if we have harmed anyone. Then we resolutely turn our thoughts to someone we can help. Love and tolerance of others is our code.
 
   And we have ceased fighting anything or anyone—even alcohol. For by this time sanity will have returned. We will seldom be interested in liquor. If tempted, we recoil from it as from a hot flame. We
 
@@ -134,7 +134,7 @@ react sanely and normally, and we will find that this has happened automatically
 
   Much has already been said about receiving strength, inspiration, and direction from God who has all knowledge and power. If we have carefully followed directions, we have begun to sense the flow of God's Spirit into us. To some extent we have become God-conscious. We have begun to develop this vital sixth sense. But we must go further and that means more action.
 
-  Step Eleven suggests prayer and meditation. We shouldn’t be shy on this matter of prayer. Better people 
+  _Step Eleven_ suggests prayer and meditation. We shouldn’t be shy on this matter of prayer. Better people
 
 PAGE 86
 
@@ -164,5 +164,5 @@ running the show, humbly saying to ourselves many times each day “Thy will be 
 
   We alcoholics are undisciplined. So we let God discipline us in the simple way we have just outlined.
 
-  But this is not all. There is action and more action. “Faith without works is dead.” The next chapter is entirely devoted to Step Twelve.
+  But this is not all. There is action and more action. “Faith without works is dead.” The next chapter is entirely devoted to _Step Twelve._
 

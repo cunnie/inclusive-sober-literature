@@ -24,7 +24,7 @@ fling, powerful! Without help it is too much for us. But there is One who has al
 
 2. Came to believe that a Power greater than ourselves could restore us to sanity.
 
-3. Made a decision to turn our will and our lives over to the care of God as we understood Him.
+3. Made a decision to turn our will and our lives over to the care of God _as we understood Him._
 
 4. Made a searching and fearless moral inventory of ourselves.
 
@@ -40,7 +40,7 @@ fling, powerful! Without help it is too much for us. But there is One who has al
 
 10. Continued to take personal inventory and when we were wrong promptly admitted it.
 
-11. Sought through prayer and meditation to improve our conscious contact with God as we understood Him, praying only for knowledge of His will for us and the power to carry that out.
+11. Sought through prayer and meditation to improve our conscious contact with God _as we understood Him,_ praying only for knowledge of His will for us and the power to carry that out.
 
 PAGE 60
 
@@ -56,7 +56,7 @@ PAGE 60
 
 (c) That God could and would if He were sought.
 
-  Being convinced, we were at Step Three, which is that we decided to turn our will and our life over to God as we understood Him. Just what do we mean by that, and just what do we do?
+  Being convinced, _we were at Step Three,_ which is that we decided to turn our will and our life over to God as we understood Him. Just what do we mean by that, and just what do we do?
 
   The first requirement is that we be convinced that any life run on self-will can hardly be a success. On that basis we are almost always in collision with something or somebody, even though our motives are good. Most people try to live by self-propulsion. Each person is like an actor who wants to run the whole show; is forever trying to arrange the lights, the ballet, the scenery and the rest of the players in his own way. If
 
@@ -82,7 +82,7 @@ PAGE 63
 
   When we sincerely took such a position, all sorts of remarkable things followed. We had a new Employer. Being all powerful, He provided what we needed, if we kept close to Him and performed His work well. Established on such a footing we became less and less interested in ourselves, our little plans and designs. More and more we became interested in seeing what we could contribute to life. As we felt new power flow in, as we enjoyed peace of mind, as we discovered we could face life successfully, as we became conscious of His presence, we began to lose our fear of today, tomorrow or the hereafter. We were reborn.
 
-  We were now at Step Three. Many of us said to our Maker, as we understood Him: “God, I offer myself to Thee—to build with me and to do with me as Thou wilt. Relieve me of the bondage of self, that I may better do Thy will. Take away my difficulties, that victory over them may bear witness to those I would help of Thy Power, Thy Love, and Thy Way of life. May I do Thy will always!” We thought well before taking this step making sure we were ready; that we could at last abandon ourselves utterly to Him.
+  We were now at Step Three. Many of us said to our Maker, _as we understood Him:_ “God, I offer myself to Thee—to build with me and to do with me as Thou wilt. Relieve me of the bondage of self, that I may better do Thy will. Take away my difficulties, that victory over them may bear witness to those I would help of Thy Power, Thy Love, and Thy Way of life. May I do Thy will always!” We thought well before taking this step making sure we were ready; that we could at last abandon ourselves utterly to Him.
 
   We found it very desirable to take this spiritual step with an understanding person, such as our wife, best friend, or spiritual adviser. But it is better to meet God alone than with one who might misunderstand. The wording was, of course, quite optional so long as we expressed the idea, voicing it without reservation. This was only a beginning, though if honestly and humbly made, an effect, sometimes a very great one, was felt at once.
 
@@ -92,7 +92,7 @@ PAGE 64
 
 which many of us had never attempted. Though our decision was a vital and crucial step, it could have little permanent effect unless at once followed by a strenuous effort to face, and to be rid of, the things in ourselves which had been blocking us. Our liquor was but a symptom. So we had to get down to causes and conditions.
 
-  Therefore, we started upon a personal inventory. This was Step Four. A business which takes no regular inventory usually goes broke. Taking a commercial inventory is a fact-finding and a fact-facing process. It is an effort to discover the truth about the stock-intrade. One object is to disclose damaged or unsalable goods, to get rid of them promptly and without regret. If the owner of the business is to be successful, he cannot fool himself about values.
+  Therefore, we started upon a personal inventory. _This was Step Four._ A business which takes no regular inventory usually goes broke. Taking a commercial inventory is a fact-finding and a fact-facing process. It is an effort to discover the truth about the stock-intrade. One object is to disclose damaged or unsalable goods, to get rid of them promptly and without regret. If the owner of the business is to be successful, he cannot fool himself about values.
 
   We did exactly the same thing with our lives. We took stock honestly. First, we searched out the flaws in our make-up which caused our failure. Being convinced that self, manifested in various ways, was what had defeated us, we considered its common manifestations.
 
@@ -119,7 +119,7 @@ We went back through our lives. Nothing counted but thoroughness and honesty. Wh
 
 PAGE 66
 
-parent was that this world and its people were often quite wrong. To conclude that others were wrong was as far as most of us ever got. The usual outcome was that people continued to wrong us and we stayed sore. Sometimes it was remorse and then we were sore at ourselves. But the more we fought and tried to have our own way, the worse matters got. As in war, the victor only seemed to win. Our moments of triumph were short-lived.
+parent was that this world and its people were often quite wrong. To conclude that others were wrong was as far as most of us ever got. The usual outcome was that people continued to wrong us and we stayed sore. Sometimes it was remorse and then we were sore at ourselves. But the more we fought and tried to have our own way, the worse matters got. As in war, the victor only _seemed_ to win. Our moments of triumph were short-lived.
 
   It is plain that a life which includes deep resentment leads only to futility and unhappiness. To the precise extent that we permit these, do we squander the hours that might have been worth while. But with the alcoholic, whose hope is the maintenance and growth of a spiritual experience, this business of resentment is infinitely grave. We found that it is fatal. For when harboring such feelings we shut ourselves off from the sunlight of the Spirit. The insanity of alcohol returns and we drink again. And with us, to drink is to die.
 

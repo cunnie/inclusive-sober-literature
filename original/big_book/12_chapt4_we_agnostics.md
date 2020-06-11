@@ -16,7 +16,7 @@ PAGE 45
 
 would have recovered long ago. But we found that such codes and philosophies did not save us, no matter how much we tried. We could wish to be moral, we could wish to be philosophically comforted, in fact, we could will these things with all our might, but the needed power wasn’t there. Our human resources, as marshalled by the will, were not sufficient; they failed utterly.
 
-  Lack of power, that was our dilemma. We had to find a power by which we could live, and it had to be a Power greater than ourselves. Obviously. But where and how were we to find this Power?
+  Lack of power, that was our dilemma. We had to find a power by which we could live, and it had to be a _Power greater than ourselves._ Obviously. But where and how were we to find this Power?
 
   Well, that’s exactly what this book is about. Its main object is to enable you to find a Power greater than yourself which will solve your problem. That means we have written a book which we believe to be spiritual as well as moral. And it means, of course, that we are going to talk about God. Here difficulty arises with agnostics. Many times we talk to a new man and watch his hope rise as we discuss his alcoholic problems and explain our fellowship. But his face falls when we speak of spiritual matters, especially when we mention God, for we have re-opened a subject which our man thought he had neatly evaded or entirely ignored.
 
@@ -132,7 +132,7 @@ PAGE 56
 
   One night, when confined in a hospital, he was approached by an alcoholic who had known a spiritual experience. Our friend’s gorge rose as he bitterly cried out: “If there is a God, He certainly hasn’t done anything for me!” But later, alone in his room, he asked himself this question: “Is it possible that all the religious people I have known are wrong?” While pondering the answer he felt as though he lived in hell. Then, like a thunderbolt, a great thought came. It crowded out all else:
 
-  “Who are you to say there is no God?”
+  _“Who are you to say there is no God?”_
 
   This man recounts that he tumbled out of bed to his knees. In a few seconds he was overwhelmed by a conviction of the Presence of God. It poured over and through him with the certainty and majesty of a great tide at flood. The barriers he had built through the years were swept away. He stood in the Presence of Infinite Power and Love. He had stepped from bridge to shore. For the first time, he lived in conscious companionship with his Creator.
 

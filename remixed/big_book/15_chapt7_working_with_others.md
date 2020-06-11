@@ -4,7 +4,7 @@ PAGE 89
 
 ## WORKING WITH OTHERS
 
-  Practical experience shows that nothing will so much insure immunity from drinking as intensive work with other alcoholics. It works when other activities fail. This is our twelfth suggestion: Carry this message to other alcoholics! You can help when no one else can. You can secure their confidence when others fail. Remember they are very ill.
+  Practical experience shows that nothing will so much insure immunity from drinking as intensive work with other alcoholics. It works when other activities fail. This is our _twelfth suggestion:_ Carry this message to other alcoholics! You can help when no one else can. You can secure their confidence when others fail. Remember they are very ill.
 
   Life will take on new meaning. To watch people recover, to see them help others, to watch loneliness vanish, to see a fellowship grow up about you, to have a host of friends—this is an experience you must not miss. We know you will not want to miss it. Frequent contact with newcomers and with each other is the bright spot of our lives.
 
@@ -42,7 +42,7 @@ Tell them how baffled you were, how you finally learned that you were sick. Give
 
 PAGE 93
 
-tirely admitted his condition, he has become very curious to know how you got well. Let him ask you that question, if he will. Tell him exactly what happened to you. Stress the spiritual feature freely. If the man be agnostic or atheist, make it emphatic that he does not have to agree with your conception of God. He can choose any conception he likes, provided it makes sense to him. The main thing is that he be willing to believe in a Power greater than himself and that he live by spiritual principles.
+tirely admitted his condition, he has become very curious to know how you got well. Let him ask you that question, if he will. _Tell him exactly what happened to you._ Stress the spiritual feature freely. If the man be agnostic or atheist, make it emphatic that _he does not have to agree with your conception of God._ He can choose any conception he likes, provided it makes sense to him. _The main thing is that he be willing to believe in a Power greater than himself and that he live by spiritual principles._
 
   When dealing with such a person, you had better use everyday language to describe spiritual principles. There is no use arousing any prejudice he may have against certain theological terms and conceptions about which he may already be confused. Don’t raise such issues, no matter what your own convictions are.
 
@@ -128,7 +128,7 @@ must not have it in our homes; we must shun friends who drink; we must avoid mov
 
   In our belief any scheme of combating alcoholism which proposes to shield the sick man from temptation is doomed to failure. If the alcoholic tries to shield himself he may succeed for a time, but he usually winds up with a bigger explosion than ever. We have tried these methods. These attempts to do the impossible have always failed.
 
-  So our rule is not to avoid a place where there is drinking, if we have a legitimate reason for being there. That includes bars, nightclubs, dances, receptions, weddings, even plain ordinary whoopee parties. To a person who has had experience with an alcoholic, this may seem like tempting Providence, but it isn’t.
+  So our rule is not to avoid a place where there is drinking, _if we have a legitimate reason for being there._ That includes bars, nightclubs, dances, receptions, weddings, even plain ordinary whoopee parties. To a person who has had experience with an alcoholic, this may seem like tempting Providence, but it isn’t.
 
   You will note that we made an important qualification. Therefore, ask yourself on each occasion, “Have I any good social, business, or personal reason for going to this place? Or am I expecting to steal a little vicarious pleasure from the atmosphere of such
 
@@ -150,6 +150,4 @@ tion. We feel that each family, in the light of their own circumstances, ought t
 
   Some day we hope that Alcoholics Anonymous will help the public to a better realization of the gravity of the alcoholic problem, but we shall be of little use if our attitude is one of bitterness or hostility. Drinkers will not stand for it.
 
-*After all, our problems were of our own making.
-Bottles were only a symbol. Besides, we have stopped
-fighting anybody or anything. We have to!*
+  _After all, our problems were of our own making. Bottles were only a symbol. Besides, we have stopped fighting anybody or anything. We have to!_

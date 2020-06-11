@@ -140,7 +140,6 @@ PAGE 135
 
   Of course our friend was wrong—dead wrong. He had to painfully admit that and mend his spiritual fences. Though he is now a most effective member of Alcoholics Anonymous, he still smokes and drinks coffee, but neither his wife nor anyone else stands in judgment. She sees she was wrong to make a burning issue out of such a matter when his more serious ailments were being rapidly cured. We have three little mottoes which are apropos. Here they are:
 
-*First Things First  
-Live and Let Live  
-Easy Does It.*
-
+> First Things First  
+> Live and Let Live  
+> Easy Does It.

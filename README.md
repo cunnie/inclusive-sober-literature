@@ -13,4 +13,4 @@ In order to be consistent in our remixing, and to ensure we're making the smalle
 Markdown files of the original text are found in `original` while the remixed versions are found in `remixed`. We hold onto the original text so that curious people can diff the original and remixed versions to see what was changed.
 
 ## Releases
-We used a tool we made called [alcobinder](https://github.com/their-sober-press/alcobinder) to render the remixed markdown files into a PDF while maintaining the original page names. Released versions of the remixed PDFs are under [releases](https://github.com/their-sober-press/inclusive-sober-literature/releases) and published on [thiersober.press](https://theirsober.press).
+We use a tool we made called [alcobinder](https://github.com/their-sober-press/alcobinder) to render the remixed markdown files into a PDF while maintaining the original page numbers/names. Released versions of the remixed PDFs are under [releases](https://github.com/their-sober-press/inclusive-sober-literature/releases) and published on [thiersober.press](https://theirsober.press).

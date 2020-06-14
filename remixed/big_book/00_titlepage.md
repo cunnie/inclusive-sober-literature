@@ -1,21 +1,29 @@
 PAGE iii
 
-ALCOHOLICS ANONYMOUS
+ALCOHOLICS  
+ANONYMOUS  
+_an inclusive remix_
 
-The Story of How Many Thousands of People Have Recovered from Alcoholism
+_The Story of_  
+How Many Thousands of People  
+Have Recovered from Alcoholism
 
-FOURTH EDITION (GENDER NEUTRAL REMIX)
+FOURTH EDITION (INCLUSIVE REMIX)
 
-Original text by:
+_This remix is not authorised or endorsed  
+by Alcoholics Anonymous World Services, Inc._
+
+
+_Originally published by_  
 ALCOHOLICS ANONYMOUS WORLD SERVICES, INC.
-New York City
+
+NEW YORK CITY
 
 2001
 
-Remixed by:
-several alcoholics
+_Remixed by_  
+THEIR SOBER PRESS
 
-This remix is not authorised or endorsed by Alcoholics Anonymous World Services, Inc.
+TORONTO
 
-2019
-
+2020

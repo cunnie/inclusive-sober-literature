@@ -6,7 +6,7 @@ PAGE 104
 
   With few exceptions, our book thus far has spoken of men. But what we have said applies quite as much to women. Our activities in behalf of women who drink are on the increase. There is every evidence that women regain their health as readily as men if they try our suggestions.
 
-  But for every man who drinks others are involved— the wife who trembles in fear of the next debauch; the mother and father who see their son wasting away.
+  But for every man who drinks others are involved—the wife who trembles in fear of the next debauch; the mother and father who see their son wasting away.
 
   Among us are wives, relatives and friends whose problem has been solved, as well as some who have not yet found a happy solution. We want the wives of Alcoholics Anonymous to address the wives of men who drink too much. What they say will apply to nearly everyone bound by ties of blood or affection to an alcoholic.
 

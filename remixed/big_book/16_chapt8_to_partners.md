@@ -12,8 +12,7 @@ PAGE 104
 
   We have traveled a rocky road, there is no mistake about that. We have had long rendezvous with hurt pride, frustration, self-pity, misunderstanding and fear. These are not pleasant companions. We have been
 
-\* This chapter was originally entitled "To Wives" and had the following footnote:
-> Written in 1939, when there were few women in A.A., this chapter assumes that the alcoholic in the home is likely to be the husband. But many of the suggestions given here may be adapted to help the person who lives with a woman alcoholic—whether she is still drinking or is recovering in A.A. A further source of help is noted on page 121.
+\* This chapter was originally entitled "To Wives" and had the following footnote: "written in 1939, when there were few women in A.A., this chapter assumes that the alcoholic in the home is likely to be the husband. But many of the suggestions given here may be adapted to help the person who lives with a woman alcoholic—whether she is still drinking or is recovering in A.A. A further source of help is noted on page 121."
 
 PAGE 105
 
@@ -191,7 +190,7 @@ PAGE 121
 
   So to you out there who may soon be with us—we say “Good luck and God bless you!”
 
-\* The fellowship of Al-Anon Family Groups was formed about thirteen years after this chapter was written. Though it is entirely separate from Alcoholics Anonymous, it uses the general principles of the A.A. program as a guide for partners, relatives, friends, and others close to alcoholics. The foregoing pages (though addressed only to partners) indicate the problems such people may face. Alateen, for teen-aged children of alcoholics, is a part of Al-Anon.
+\* The fellowship of Al-Anon Family Groups was formed about thirteen years after this chapter was written. Though it is entirely separate from Alcoholics Anonymous, it uses the general principles of the A.A. program as a guide for partners, relatives, friends, and others close to alcoholics. The foregoing pages (though addressed only to partners) indicate the problems such people may face. Alateen, for teen-aged children of alcoholics, is a part of Al-Anon.  
 
   If there is no Al-Anon listing in your local telephone book, you may obtain further information on Al-Anon/Alateen Family Groups by writing to its World Service Office, 1600 Corporate Landing Parkway, Virginia Beach, VA 23454-5617.
 

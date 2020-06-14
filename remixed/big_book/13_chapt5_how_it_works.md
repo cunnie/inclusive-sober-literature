@@ -50,11 +50,11 @@ PAGE 60
 
   Our description of the alcoholic, the chapter to the agnostic, and our personal adventures before and after make clear three pertinent ideas:
 
-(a) That we were alcoholic and could not manage our own lives.
-
-(b) That probably no human power could have relieved our alcoholism.
-
-(c) That God could and would if God were sought.
+|     |                                                                     |
+|-----|---------------------------------------------------------------------|
+| (a) | That we were alcoholic and could not manage our own lives.          |
+| (b) | That probably no human power could have relieved our alcoholism.    |
+| (c) | That God could and would if God were sought.                        |
 
   Being convinced, _we were at Step Three,_ which is that we decided to turn our will and our life over to God as we understood God. Just what do we mean by that, and just what do we do?
 
@@ -106,16 +106,16 @@ PAGE 65
 
   We were usually as definite as this example:
 
-| I'm resentful at: | The Cause                                                                                                | Affects my:                                  |
-|-------------------|----------------------------------------------------------------------------------------------------------|----------------------------------------------|
-| Brown             | Their attention to my partner.                                                                           | Sex relations. Self-esteem (fear)            |
-|                   | Told my partner about my affair.                                                                         | Sex relations. Self-esteem (fear)            |
-|                   | Brown may get my job at the office.                                                                      | Security. Self-esteem (fear)                 |
-| Jones             | They're a nut—they snubbed me. They committed their partner, my friend, for drinking. They're a gossip.  | Personal relationships. Self-esteem (fear)   |
-| My employer       | Unreasonable—Unjust—Overbearing—Threatens to fire me for drinking and padding my expense account.        | Self-esteem (fear). Security                 |
-| My partner        | Misunderstand and nag. Like Brown. Want house put in their name.                                         | Pride—Personal sex relations—Security (fear) |
+| I’m resentful at: | The Cause                                                                                                | Affects my:                                                                |
+|-------------------|----------------------------------------------------------------------------------------------------------|----------------------------------------------------------------------------|
+| Brown             | Their attention to my partner.                                                                           | Sex relations.         <br/> Self-esteem (fear)                            |
+|                   | Told my partner about my affair.                                                                         | Sex relations.         <br/> Self-esteem (fear)                            |
+|                   | Brown may get my job at the office.                                                                      | Security.              <br/> Self-esteem (fear)                            |
+| Jones             | They're a nut—they snubbed me. They committed their partner, my friend, for drinking. They're a gossip.  | Personal relationships.<br/> Self-esteem (fear)                            |
+| My employer       | Unreasonable—Unjust—Overbearing—Threatens to fire me for drinking and padding my expense account.        | Self-esteem (fear).    <br/> Security                                      |
+| My partner        | Misunderstand and nag. Like Brown. Want house put in their name.                                         | Pride.                 <br/> Personal sex relations. <br/> Security (fear) |
 
-We went back through our lives. Nothing counted but thoroughness and honesty. When we were finished we considered it carefully. The first thing ap­
+We went back through our lives. Nothing counted but thoroughness and honesty. When we were finished we considered it carefully. The first thing ap-
 
 PAGE 66
 

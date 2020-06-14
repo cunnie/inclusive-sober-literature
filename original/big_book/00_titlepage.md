@@ -1,13 +1,16 @@
 PAGE iii
 
-ALCOHOLICS ANONYMOUS
+ALCOHOLICS  
+ANONYMOUS  
 
-The Story of How Many Thousands of Men and Women Have Recovered from Alcoholism
+_The Story of_  
+How Many Thousands of Men and Women  
+Have Recovered from Alcoholism
 
 FOURTH EDITION
 
 ALCOHOLICS ANONYMOUS WORLD SERVICES, INC.
-New York City
+NEW YORK CITY
 
 2001
 

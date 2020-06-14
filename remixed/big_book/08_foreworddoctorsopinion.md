@@ -23,6 +23,7 @@ PAGE xxvi
 >   You may rely absolutely on anything they say about themselves.
 >
 > Very truly yours,
+>
 > William D. Silkworth, M.D.
 
   The physician who, at our request, gave us this letter, has been kind enough to enlarge upon his views in another statement which follows. In this statement he confirms what we who have suffered alcoholic torture must believe—that the body of the alcoholic is quite as abnormal as their mind. It did not satisfy us to be told that we could not control our drinking just because we were maladjusted to life, that we were in full flight from reality, or were outright mental defectives. These things were true to some extent, in fact, to a considerable extent with some of us. But we are sure that our bodies were sickened as well. In our belief, any picture of the alcoholic which leaves out this physical factor is incomplete.
@@ -35,7 +36,7 @@ PAGE xxvii
 
 ter chance of understanding and accepting what we have to offer.
 
-The doctor writes:
+  The doctor writes:
 
 >   The subject presented in this book seems to me to be of paramount importance to those afflicted with alcoholic addiction.
 >

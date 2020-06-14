@@ -1,6 +1,6 @@
 PAGE xv
 
-FOREWORD TO SECOND EDITION
+# FOREWORD TO SECOND EDITION
 
 *Figures given in this foreword describe the Fellowship as it was in 1955.*
 

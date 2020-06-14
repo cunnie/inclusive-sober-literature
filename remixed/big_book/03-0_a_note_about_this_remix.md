@@ -1,6 +1,6 @@
 PAGE vi
 
-# A note about this remix
+# ABOUT THIS REMIX
 
   This remix by Their Sober Press, aims to make the smallest surgical changes to the original text of _Alcoholics Anonymous_—published and trademarked by A.A. World Services, Inc—in order to make the text inclusive of people of all genders, sexual orientations, and religious beliefs. Our goal was to produce a text that could be read alongside the original (e.g. at a Step Study meeting) with minimal disruption. Care has been taken to ensure the page numbers in this text line up with the page numbers in the original.
 
@@ -11,36 +11,35 @@ PAGE vi
 
 ## Examples of changes
 
-### Step 3, page 34
-“Made a decision to turn our will and our lives over to the care of God _as we understood **Him**_.”
+### Chapter 5, page 59
+Made a decision to turn our will and our lives over to the care of God _as we understood **Him**_.
 
 -------------------
 
-“Made a decision to turn our will and our lives over to the care of God _as we understood **God**_.”
+Made a decision to turn our will and our lives over to the care of God _as we understood **God**_.
 
 PAGE vii
 
-### Step 1, page 21
-We know that little good can come to any alcoholic who joins A.A. unless **he has** first accepted **his** devastating weakness and all its consequences.
+### Chapter 3, page 30
+The idea that somehow, someday **he** will control and enjoy **his** drinking is the great obsession of every abnormal drinker.
 
 -------------------
 
-We know that little good can come to any alcoholic who joins A.A. unless **they have** first accepted **their** devastating weakness and all its consequences.
+The idea that somehow, someday **they** will control and enjoy **their** drinking is the great obsession of every abnormal drinker.
 
-### Step 12, page 117
-Nearly every **sound** human being experiences, at some time in life, a compelling desire to find a mate **of the opposite sex** with whom the fullest possible union can be made—spiritual, mental, emotional, and physical.
-
--------------------
-
-Nearly every human being experiences, at some time in life, a compelling desire to find a mate with whom the fullest possible union can be made—**often** spiritual, mental, emotional, and physical.
-
-### Step 12, page 118
-
-Very gradually, and usually without any realization of the fact, the **wife** is forced to become the mother of an erring **boy**.
+### Chapter 7, page 103
+Every new alcoholic looks for this spirit among us and is immensely relieved when **he finds** we are not **witchburners**.
 
 -------------------
 
-Very gradually, and usually without any realization of the fact, the **partner** is forced to become the parent of an erring **child**.
+Every new alcoholic looks for this spirit among us and is immensely relieved when **they find** we are not **condemnatory**.
+
+### Chapter 8, page 104
+For every **man** who drinks others are involved—the **wife** who trembles in fear of the next debauch; the **mother and father** who see their **son** wasting away.
+
+-------------------
+
+For every **alcoholic** who drinks others are involved—the **partner** who trembles in fear of the next debauch; the **parents** who see their child wasting away.
 
 PAGE viii
 PAGE ix

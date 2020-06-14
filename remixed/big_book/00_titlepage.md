@@ -1,5 +1,3 @@
-PAGE i
-PAGE ii
 PAGE iii
 
 ALCOHOLICS  

@@ -50,11 +50,11 @@ PAGE 60
 
   Our description of the alcoholic, the chapter to the agnostic, and our personal adventures before and after make clear three pertinent ideas:
 
-(a) That we were alcoholic and could not manage our own lives.
-
-(b) That probably no human power could have relieved our alcoholism.
-
-(c) That God could and would if God were sought.
+|     |                                                                     |
+|-----|---------------------------------------------------------------------|
+| (a) | That we were alcoholic and could not manage our own lives.          |
+| (b) | That probably no human power could have relieved our alcoholism.    |
+| (c) | That God could and would if God were sought.                        |
 
   Being convinced, _we were at Step Three,_ which is that we decided to turn our will and our life over to God as we understood God. Just what do we mean by that, and just what do we do?
 

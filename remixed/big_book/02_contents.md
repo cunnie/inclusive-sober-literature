@@ -4,6 +4,7 @@ PAGE v
 
 | Chapter                        ||  Page  |
 |---:|:---------------------------|-------:|
+|    | About This Remix           |     vi |
 |    | Preface                    |     xi |
 |    | Foreword to First Edition  |   xiii |
 |    | Foreword to Second Edition |     xv |

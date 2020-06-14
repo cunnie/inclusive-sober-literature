@@ -1,0 +1,3 @@
+[submodule "alcobinder"]
+	path = alcobinder
+	url = git@github.com:their-sober-press/alcobinder

@@ -2,7 +2,7 @@ PAGE xxv
 
 # THE DOCTOR’S OPINION
 
-  We of Alcoholics Anonymous believe that the reader will be interested in the medical estimate of the plan of recovery described in this book. Convincing testimony must surely come from medical physicians who have had experience with the sufferings of our members and have witnessed our return to health. A well-known doctor, chief physician at a nationally prominent hospital specializing in alcoholic and drug addiction, gave Alcoholics Anonymous this letter:
+WE of Alcoholics Anonymous believe that the reader will be interested in the medical estimate of the plan of recovery described in this book. Convincing testimony must surely come from medical physicians who have had experience with the sufferings of our members and have witnessed our return to health. A well-known doctor, chief physician at a nationally prominent hospital specializing in alcoholic and drug addiction, gave Alcoholics Anonymous this letter:
 
 > To Whom It May Concern:
 >

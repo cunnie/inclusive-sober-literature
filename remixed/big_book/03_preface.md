@@ -2,7 +2,7 @@ PAGE xi
 
 #PREFACE
 
-  This is the fourth edition of the book “Alcoholics Anonymous.” The first edition appeared in April 1939, and in the following sixteen years, more than 300,000 copies went into circulation. The second edition, published in 1955, reached a total of more than 1,150,500 copies. The third edition, which came off press in 1976, achieved a circulation of approximately 19,550,000 in all formats.
+THIS is the fourth edition of the book “Alcoholics Anonymous.” The first edition appeared in April 1939, and in the following sixteen years, more than 300,000 copies went into circulation. The second edition, published in 1955, reached a total of more than 1,150,500 copies. The third edition, which came off press in 1976, achieved a circulation of approximately 19,550,000 in all formats.
 
   Because this book has become the basic text for our Society and has helped such large numbers of alcoholics to recovery, there exists strong sentiment against any radical changes being made in it. Therefore, the first portion of this volume, describing the A.A. recovery program, has been left largely untouched in the course of revisions made for the second, third, and fourth editions. The section called “The Doctor’s Opinion” has been kept intact, just as it was originally written in 1939 by the late Dr. William D. Silkworth, our Society’s great medical benefactor.
 

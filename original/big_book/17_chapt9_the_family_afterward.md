@@ -4,7 +4,7 @@ PAGE 122
 
 ## THE FAMILY AFTERWARD
 
-  Our women folk have suggested certain attitudes a wife may take with the husband who is recovering. Perhaps they created the impression that he is to be wrapped in cotton wool and placed on a pedestal. Successful readjustment means the opposite. All members of the family should meet upon the common ground of tolerance, understanding and love. This involves a process of deflation. The alcoholic, his wife, his children, his “in-laws,” each one is likely to have fixed ideas about the family’s attitude towards himself or herself. Each is interested in having his or her wishes respected. We find the more one member of the family demands that the others concede to him, the more resentful they become. This makes for discord and unhappiness.
+OUR women folk have suggested certain attitudes a wife may take with the husband who is recovering. Perhaps they created the impression that he is to be wrapped in cotton wool and placed on a pedestal. Successful readjustment means the opposite. All members of the family should meet upon the common ground of tolerance, understanding and love. This involves a process of deflation. The alcoholic, his wife, his children, his “in-laws,” each one is likely to have fixed ideas about the family’s attitude towards himself or herself. Each is interested in having his or her wishes respected. We find the more one member of the family demands that the others concede to him, the more resentful they become. This makes for discord and unhappiness.
 
   And why? Is it not because each wants to play the lead? Is not each trying to arrange the family show to his liking? Is he not unconsciously trying to see what he can take from the family life rather than give?
 

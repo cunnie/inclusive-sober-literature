@@ -4,7 +4,7 @@ PAGE 104
 
 ## TO WIVES\*
 
-  With few exceptions, our book thus far has spoken of men. But what we have said applies quite as much to women. Our activities in behalf of women who drink are on the increase. There is every evidence that women regain their health as readily as men if they try our suggestions.
+WITH few exceptions, our book thus far has spoken of men. But what we have said applies quite as much to women. Our activities in behalf of women who drink are on the increase. There is every evidence that women regain their health as readily as men if they try our suggestions.
 
   But for every man who drinks others are involved—the wife who trembles in fear of the next debauch; the mother and father who see their son wasting away.
 

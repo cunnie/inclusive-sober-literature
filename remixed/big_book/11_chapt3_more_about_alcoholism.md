@@ -4,7 +4,7 @@ PAGE 30
 
 ## MORE ABOUT ALCOHOLISM
 
-  Most of us have been unwilling to admit we were real alcoholics. No person likes to think they are bodily and mentally different from their fellows. Therefore, it is not surprising that our drinking careers have been characterized by countless vain attempts to prove we could drink like other people. The idea that somehow, someday they will control and enjoy their drinking is the great obsession of every abnormal drinker. The persistence of this illusion is astonishing. Many pursue it into the gates of insanity or death.
+MOST of us have been unwilling to admit we were real alcoholics. No person likes to think they are bodily and mentally different from their fellows. Therefore, it is not surprising that our drinking careers have been characterized by countless vain attempts to prove we could drink like other people. The idea that somehow, someday they will control and enjoy their drinking is the great obsession of every abnormal drinker. The persistence of this illusion is astonishing. Many pursue it into the gates of insanity or death.
 
   We learned that we had to fully concede to our innermost selves that we were alcoholics. This is the first step in recovery. The delusion that we are like other people, or presently may be, has to be smashed.
 

@@ -4,7 +4,7 @@ PAGE xv
 
 *Figures given in this foreword describe the Fellowship as it was in 1955.*
 
-  Since the original Foreword to this book was written in 1939, a wholesale miracle has taken place. Our earliest printing voiced the hope “that every alcoholic who journeys will find the Fellowship of Alcoholics Anonymous at his destination. Already,” continues the early text “twos and threes and fives of us have sprung up in other communities.”
+SINCE the original Foreword to this book was written in 1939, a wholesale miracle has taken place. Our earliest printing voiced the hope “that every alcoholic who journeys will find the Fellowship of Alcoholics Anonymous at his destination. Already,” continues the early text “twos and threes and fives of us have sprung up in other communities.”
 
   Sixteen years have elapsed between our first printing of this book and the presentation in 1955 of our second edition. In that brief space, Alcoholics Anonymous has mushroomed into nearly 6,000 groups whose membership is far above 150,000 recovered alcoholics. Groups are to be found in each of the United States and all of the provinces of Canada. A.A. has flourishing communities in the British Isles, the Scandinavian countries, South Africa, South America, Mexico, Alaska, Australia and Hawaii. All told, promising beginnings have been made in some 50 foreign countries and U. S. possessions. Some are just now taking shape in Asia. Many of our friends encourage us by saying that this is but a beginning, only the augury of a much larger future ahead.
 

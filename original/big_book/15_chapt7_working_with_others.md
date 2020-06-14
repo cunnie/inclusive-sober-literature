@@ -4,7 +4,7 @@ PAGE 89
 
 ## WORKING WITH OTHERS
 
-  Practical experience shows that nothing will so much insure immunity from drinking as intensive work with other alcoholics. It works when other activities fail. This is our _twelfth suggestion:_ Carry this message to other alcoholics! You can help when no one else can. You can secure their confidence when others fail. Remember they are very ill.
+PRACTICAL experience shows that nothing will so much insure immunity from drinking as intensive work with other alcoholics. It works when other activities fail. This is our _twelfth suggestion:_ Carry this message to other alcoholics! You can help when no one else can. You can secure their confidence when others fail. Remember they are very ill.
 
   Life will take on new meaning. To watch people recover, to see them help others, to watch loneliness vanish, to see a fellowship grow up about you, to have a host of friends—this is an experience you must not miss. We know you will not want to miss it. Frequent contact with newcomers and with each other is the bright spot of our lives.
 

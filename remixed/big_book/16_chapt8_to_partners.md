@@ -4,7 +4,7 @@ PAGE 104
 
 ## TO PARTNERS\*
 
-  For every alcoholic who drinks others are involved—the partner who trembles in fear of the next debauch; the parents who see their child wasting away.
+FOR every alcoholic who drinks others are involved—the partner who trembles in fear of the next debauch; the parents who see their child wasting away.
 
   Among us are partners, relatives and friends whose problem has been solved, as well as some who have not yet found a happy solution. We want the partners of Alcoholics Anonymous to address the partners of people who drink too much. What they say will apply to nearly everyone bound by ties of blood or affection to an alcoholic.
 

@@ -2,7 +2,7 @@ PAGE xxiii
 
 # FOREWORD TO FOURTH EDITION
 
-This fourth edition of “Alcoholics Anonymous” came off press in November 2001, at the start of a new millennium. Since the third edition was published in 1976, worldwide membership of A.A. has just about doubled, to an estimated two million or more, with nearly 100,800 groups meeting in approximately 150 countries around the world.
+THIS fourth edition of “Alcoholics Anonymous” came off press in November 2001, at the start of a new millennium. Since the third edition was published in 1976, worldwide membership of A.A. has just about doubled, to an estimated two million or more, with nearly 100,800 groups meeting in approximately 150 countries around the world.
 
   Literature has played a major role in A.A.’s growth, and a striking phenomenon of the past quartercentury has been the explosion of translations of our basic literature into many languages and dialects. In country after country where the A.A. seed was planted, it has taken root, slowly at first, then growing by leaps and bounds when literature has become available. Currently, “Alcoholics Anonymous” has been translated into forty-three\* languages.
 

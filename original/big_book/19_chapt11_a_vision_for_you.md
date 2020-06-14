@@ -1,11 +1,11 @@
 PAGE 151
 
-Chapter 11
-====================
-A VISION FOR YOU
---------------------
+# Chapter 11
 
-  For most normal folks, drinking means conviviality, companionship and colorful imagination. It means release from care, boredom and worry. It is joyous intimacy with friends and a feeling that life is good. But not so with us in those last days of heavy drinking. The old pleasures were gone. They were but memories. Never could we recapture the great moments of the past. There was an insistent yearning to enjoy life as we once did and a heartbreaking obsession that some new miracle of control would enable us to do it. There was always one more attempt—and one more failure.
+## A VISION FOR YOU
+
+
+FOR most normal folks, drinking means conviviality, companionship and colorful imagination. It means release from care, boredom and worry. It is joyous intimacy with friends and a feeling that life is good. But not so with us in those last days of heavy drinking. The old pleasures were gone. They were but memories. Never could we recapture the great moments of the past. There was an insistent yearning to enjoy life as we once did and a heartbreaking obsession that some new miracle of control would enable us to do it. There was always one more attempt—and one more failure.
 
   The less people tolerated us, the more we withdrew from society, from life itself. As we became subjects of King Alcohol, shivering denizens of his mad realm, the chilling vapor that is loneliness settled down. It thickened, ever becoming blacker. Some of us sought out sordid places, hoping to find understanding companionship and approval. Momentarily we did—then would come oblivion and the awful awakening to face the hideous Four Horsemen—Terror, Bewilderment, Frustration, Despair. Unhappy drinkers who read this page will understand!
 

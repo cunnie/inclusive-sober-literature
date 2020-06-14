@@ -2,7 +2,7 @@ PAGE xxii
 
 # FOREWORD TO THIRD EDITION
 
-  By March 1976, when this edition went to the printer, the total worldwide membership of Alcoholics Anonymous was conservatively estimated at more than 1,000,000, with almost 28,000 groups meeting in over 90 countries.
+BY March 1976, when this edition went to the printer, the total worldwide membership of Alcoholics Anonymous was conservatively estimated at more than 1,000,000, with almost 28,000 groups meeting in over 90 countries.
 
   Surveys of groups in the United States and Canada indicate that A.A. is reaching out, not only to more and more people, but to a wider and wider range. Women now make up more than one-fourth of the membership; among newer members, the proportion is nearly one-third. Seven percent of the A.A.’s surveyed are less than 30 years of age—among them, many in their teens.
 
